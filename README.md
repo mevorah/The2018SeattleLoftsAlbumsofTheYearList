@@ -1,4 +1,4 @@
-
+#The SeattleLofts 2018 Album List
 
 **Listening**
 1. Priming pass - listen in the morning
