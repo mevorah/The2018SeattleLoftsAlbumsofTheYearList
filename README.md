@@ -1,10 +1,83 @@
-## Welcome to GitHub Pages
+# The SeattleLofts 2018 Album List
 
-You can use the [editor on GitHub](https://github.com/mevorah/The2018SeattleLoftsAlbumsofTheYearList/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
+**Listening**
+1. Priming pass - listen in the morning
+2. Second pass - form an opinion.. at night
+3. X pass - revisit opinion 😅
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+**Scale**
+1. Incredible / Amazing
+2. Very Good
+3. Pretty Good
+4. Ok
+5. Not Great
+6. Awful / The Worst
 
-### Markdown
+## 1/20 The Queen Is Dead - The Smiths
+
+## 1/19 Let It Be - The Replacements
+1st Listen: Pretty good
+
+## 1/18 Daydream Nation - Sonic Youth
+1st Listen: Pretty good
+
+## 1/17 Murmur - R.E.M
+1st Listen: Pretty good
+
+## 1/16 Purple Rain - Prince
+1st Listen: Pretty good
+
+## 1/15 Remain In Light - Talking Heads
+1st Listen: Ok
+
+## 1/14 Revolver - The Beatles
+Nth Listen: Very good
+
+## 1/13 Joshua Tree - U2
+1st Listen: Pretty good
+
+## 1/12 Violent Femmes - Violent Femmes
+1st Listen: Very good
+
+## 1/11 Nebraska - Bruce Springsteen
+1st Listen: Pretty good
+2nd Listen: Pretty/ very good
+
+## 1/10 Graceland - Paul Simon 1st Listen
+1st Listen: Pretty good
+
+## 1/9 Scary Monsters- David Bowie
+1st Listen: Pretty good
+
+## 1/8 Paul’s Boutique - Beastie Boys
+1st Listen: Pretty good
+
+## 1/7 Aeroplane Over The Sea - Neutral Milk Hotel
+Nth Listen: Amazing
+
+## 1/6 New Day Rising - Hüsker Du
+1st Listen: Ok
+
+## 1/6 13 Songs - Fugazi
+1st Listen: Ok
+
+## 1/5 Zen Arcade - Hüsker Du
+1st Listen: Ok
+
+## 1/4 Everything Falls Apart - Hüsker Du
+1st Listen: Not great
+
+## 1/3 Good Bad Not Evil - The Black Lips
+1st Listen: Pretty good
+
+## 1/1 Low - David Bowie
+1st Listen: Very good
+2nd Listen: Very good/ Amazing
+`Only one single if any - Sound and Vision. Otherwise the album lives only as a whole - tracking Bowies progression from addiction to the next phase in his career.
+`
+
+
+### Reference
 
 Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
@@ -26,12 +99,3 @@ Syntax highlighted code block
 [Link](url) and ![Image](src)
 ```
 
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/mevorah/The2018SeattleLoftsAlbumsofTheYearList/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
