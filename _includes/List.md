@@ -1,6 +1,7 @@
 # The SeattleLofts 2018 Album List
 
 <iframe src="https://open.spotify.com/embed/user/1226088349/playlist/0stPoUSo8QaT2TihrKpns1" width="300" height="78" frameborder="0" allowtransparency="true" style="border-radius:8px"></iframe>
+<br/>
 
 1. [Aeroplane Over the Sea - Neutral Milk Hotel (I)](#17-in-the-aeroplane-over-the-sea---neutral-milk-hotel)
 1. [Illinois - Sufjan Stevens (VG)](#121-illinois---sufjan-stevens)
