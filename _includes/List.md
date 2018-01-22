@@ -1,2 +1,21 @@
-1. ghjhgf
-2. kfk
+**The List**
+1. Aeroplane Over the Sea - Neutral Milk Hotel (I)
+1. Illinois - Sufjan Stevens (VG)
+1. Revolver - The Beatles (VG)
+2. Low - David Bowie (VG/I)
+4. Violent Femmes - Violent Femmes (VG)
+3. Paul's Boutique - Beastie Boys (PG)
+5. Purple Rain - Prince (PG)
+6. Scary Monsters - David Bowie (PG)
+7. Daydream Nation - Sonic Youth (PG)
+8. Joshua Tree - U2 (PG)
+9. Nebraska - Bruce Springsteen (PG/VG)
+10. Let It Be - The Replacements (PG)
+11. Graceland - Paul Simon (PG)
+12. Good Bad Not Evil - The Black Lips (PG)
+13. Murmur - R.E.M (PG)
+14. Remain in light - Talking Heads (Ok)
+15. New Day Rising - Hüsker Du (Ok)
+16. Zen Arcade - Hüsker Du (Ok)
+17. 13 Songs - Fugazi (Ok)
+18. Everything Falls Apart - Hüsker Du (NG)
