@@ -11,6 +11,8 @@
 5. Not Great
 6. Awful / The Worst
 
+## 1/22 Rain Dogs - Tom Waits
+
 ## 1/21 Illinois - Sufjan Stevens
 Nth Listen: Very good
 
