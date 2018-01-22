@@ -13,92 +13,68 @@
 5. Not Great
 6. Awful / The Worst
 
-## 1/21 Illinois - Sufjan Stevens
+## [1/21 Illinois - Sufjan Stevens](#illinois)
 Nth Listen: Very good
 
-## 1/20 The Queen Is Dead - The Smiths
+## [1/20 The Queen Is Dead - The Smiths](#the-queen-is-dead)
 
-## 1/19 Let It Be - The Replacements
+## [1/19 Let It Be - The Replacements](#let-it-be)
 1st Listen: Pretty good
 
-## 1/18 Daydream Nation - Sonic Youth
+## [1/18 Daydream Nation - Sonic Youth](#daydream-nation)
 1st Listen: Pretty good
 
-## 1/17 Murmur - R.E.M
+## [1/17 Murmur - R.E.M](#murmur)
 1st Listen: Pretty good
 
-## 1/16 Purple Rain - Prince
+## [1/16 Purple Rain - Prince](#purple-rain)
 1st Listen: Pretty good
 
-## 1/15 Remain In Light - Talking Heads
+## [1/15 Remain In Light - Talking Heads](#remain-in-light)
 1st Listen: Ok
 
-## 1/14 Revolver - The Beatles
+## [1/14 Revolver - The Beatles](#revolver)
 Nth Listen: Very good
 
-## 1/13 Joshua Tree - U2
+## [1/13 Joshua Tree - U2](#joshua-tree)
 1st Listen: Pretty good
 
-## 1/12 Violent Femmes - Violent Femmes
+## [1/12 Violent Femmes - Violent Femmes](#violent-femmes)
 1st Listen: Very good
 
-## 1/11 Nebraska - Bruce Springsteen
+## [1/11 Nebraska - Bruce Springsteen](#nebraska)
 1st Listen: Pretty good
 2nd Listen: Pretty/ very good
 
-## 1/10 Graceland - Paul Simon 1st Listen
+## [1/10 Graceland - Paul Simon 1st Listen](#graceland)
 1st Listen: Pretty good
 
-## 1/9 Scary Monsters- David Bowie
+## [1/9 Scary Monsters- David Bowie](#scary-monsters)
 1st Listen: Pretty good
 
-## 1/8 Paul’s Boutique - Beastie Boys
+## [1/8 Paul’s Boutique - Beastie Boys](#pauls-boutique)
 1st Listen: Pretty good
 
-## 1/7 Aeroplane Over The Sea - Neutral Milk Hotel
+## [1/7 In the Aeroplane Over The Sea - Neutral Milk Hotel](#aeroplane-over-the-sea)
 Nth Listen: Amazing
 
-## 1/6 New Day Rising - Hüsker Du
+## [1/6 New Day Rising - Hüsker Du](#new-day-rising)
 1st Listen: Ok
 
-## 1/6 13 Songs - Fugazi
+## [1/6 13 Songs - Fugazi](#13-songs)
 1st Listen: Ok
 
-## 1/5 Zen Arcade - Hüsker Du
+## [1/5 Zen Arcade - Hüsker Du](#zen-arcade)
 1st Listen: Ok
 
-## 1/4 Everything Falls Apart - Hüsker Du
+## [1/4 Everything Falls Apart - Hüsker Du](#everything-falls-apart)
 1st Listen: Not great
 
-## 1/3 Good Bad Not Evil - The Black Lips
+## [1/3 Good Bad Not Evil - The Black Lips](#good-bad-not-evil)
 1st Listen: Pretty good
 
-## 1/1 Low - David Bowie
+## [1/1 Low - David Bowie](#low)
 1st Listen: Very good
 2nd Listen: Very good/ Amazing
-`Only one single if any - Sound and Vision. Otherwise the album lives only as a whole - tracking Bowies progression from addiction to the next phase in his career.
-`
 
-
-### Reference
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
+Only one single if any - Sound and Vision. Otherwise the album lives only as a whole - tracking Bowies progression from addiction to the next phase in his career.
