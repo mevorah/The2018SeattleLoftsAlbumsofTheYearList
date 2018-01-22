@@ -45,7 +45,7 @@ Nth Listen: Very good
 1st Listen: Pretty good
 2nd Listen: Pretty/ very good
 
-## 1/10 Graceland - Paul Simon 1st Listen
+## 1/10 Graceland - Paul Simon
 1st Listen: Pretty good
 
 ## 1/9 Scary Monsters- David Bowie
