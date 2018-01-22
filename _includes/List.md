@@ -1,8 +1,4 @@
 # The SeattleLofts 2018 Album List
-
-<iframe src="https://open.spotify.com/embed/user/1226088349/playlist/0stPoUSo8QaT2TihrKpns1" width="300" height="78" frameborder="0" allowtransparency="true" style="border-radius:8px"></iframe>
-<br/>
-
 1. [Aeroplane Over the Sea - Neutral Milk Hotel (I)](#17-in-the-aeroplane-over-the-sea---neutral-milk-hotel)
 1. [Illinois - Sufjan Stevens (VG)](#121-illinois---sufjan-stevens)
 1. [Revolver - The Beatles (VG)](#114-revolver---the-beatles)
@@ -24,5 +20,5 @@
 16. [Zen Arcade - Hüsker Du (Ok)](15-zen-arcade---hüsker-du)
 17. [13 Songs - Fugazi (Ok)](#16-13-songs---fugazi)
 18. [Everything Falls Apart - Hüsker Du (NG)](#14-everything-falls-apart---hüsker-du)
-
+<br/>
 <iframe src="https://open.spotify.com/embed/user/1226088349/playlist/0stPoUSo8QaT2TihrKpns1" width="300" height="78" frameborder="0" allowtransparency="true" style="border-radius:8px"></iframe>
