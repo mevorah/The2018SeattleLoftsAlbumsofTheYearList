@@ -13,28 +13,6 @@
 5. Not Great
 6. Awful / The Worst
 
-**The List**
-1. Aeroplane Over the Sea
-1. Illinois
-1. Revolver
-2. Low
-4. Violent Femmes
-3. Paul's Boutique
-5. Purple Rain
-6. Scary Monsters
-7. Daydream Nation
-8. Joshua Tree
-9. Nebraska
-10. Let It Be
-11. Graceland
-12. Good Bad Not Evil
-13. Murmur
-14. Remain in light
-15. New Day Rising
-16. Zen Arcade
-17. 13 Songs
-18. Everything Falls Apart
-
 ## 1/21 Illinois - Sufjan Stevens
 Nth Listen: Very good
 
