@@ -1,6 +1,3 @@
-<br/>
-<br/>
-
 **Listening**
 1. Priming pass - listen in the morning
 2. Second pass - form an opinion.. at night
