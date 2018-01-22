@@ -1,6 +1,6 @@
 **The List**
-1. Aeroplane Over the Sea - Neutral Milk Hotel (I)
-1. Illinois - Sufjan Stevens (VG)
+1. [Aeroplane Over the Sea - Neutral Milk Hotel (I)](#aeroplane-over-the-sea)
+1. [Illinois - Sufjan Stevens (VG)](#illinois)
 1. Revolver - The Beatles (VG)
 2. Low - David Bowie (VG/I)
 4. Violent Femmes - Violent Femmes (VG)
@@ -14,6 +14,7 @@
 11. Graceland - Paul Simon (PG)
 12. Good Bad Not Evil - The Black Lips (PG)
 13. Murmur - R.E.M (PG)
+12. [The Queen Is Dead - The Smiths (Ok)](#the-queen-is-dead)
 14. Remain in light - Talking Heads (Ok)
 15. New Day Rising - Hüsker Du (Ok)
 16. Zen Arcade - Hüsker Du (Ok)
