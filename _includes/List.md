@@ -1,6 +1,6 @@
 **The List**
-1. [Aeroplane Over the Sea - Neutral Milk Hotel (I)](#aeroplane-over-the-sea)
-1. [Illinois - Sufjan Stevens (VG)](#illinois)
+1. Aeroplane Over the Sea - Neutral Milk Hotel (I)
+1. Illinois - Sufjan Stevens (VG)
 1. Revolver - The Beatles (VG)
 2. Low - David Bowie (VG/I)
 4. Violent Femmes - Violent Femmes (VG)
