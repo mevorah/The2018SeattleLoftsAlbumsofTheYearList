@@ -13,7 +13,7 @@
   <body>
     <div class="wrapper">
       <header>
-        {% capture list %} {% include List.md } {% endcapture %}
+        {% capture list %}{% include List.md %}{% endcapture %}
         {{ list | markdownify }}
       </header>
       <section>
