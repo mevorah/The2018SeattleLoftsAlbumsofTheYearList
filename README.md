@@ -1,4 +1,4 @@
-# The SeattleLofts 2018 Album List
+#
 
 **Listening**
 1. Priming pass - listen in the morning
@@ -17,6 +17,7 @@
 Nth Listen: Very good
 
 ## [1/20 The Queen Is Dead - The Smiths](#the-queen-is-dead)
+1st Listen: Ok
 
 ## [1/19 Let It Be - The Replacements](#let-it-be)
 1st Listen: Pretty good
