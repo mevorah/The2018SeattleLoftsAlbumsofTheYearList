@@ -17,7 +17,7 @@
 12. [The Queen Is Dead - The Smiths (Ok)](#120-the-queen-is-dead---the-smiths)
 14. [Remain in light - Talking Heads (Ok)](#115-remain-in-light---talking-heads)
 15. [New Day Rising - Hüsker Du (Ok)](#16-new-day-rising---hüsker-du)
-16. [Zen Arcade - Hüsker Du (Ok)](15-zen-arcade---hüsker-du)
+16. [Zen Arcade - Hüsker Du (Ok)](#15-zen-arcade---hüsker-du)
 17. [13 Songs - Fugazi (Ok)](#16-13-songs---fugazi)
 18. [Everything Falls Apart - Hüsker Du (NG)](#14-everything-falls-apart---hüsker-du)
 <br/>
