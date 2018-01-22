@@ -1,5 +1,3 @@
-<iframe src="https://open.spotify.com/embed/user/1226088349/playlist/0stPoUSo8QaT2TihrKpns1" width="300" height="78" frameborder="0" allowtransparency="true" style="border-radius:8px"></iframe>
-
 **Listening**
 1. Priming pass - listen in the morning
 2. Second pass - form an opinion.. at night
