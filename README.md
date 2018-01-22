@@ -15,10 +15,11 @@
 
 **The List**
 1. Aeroplane Over the Sea
+1. Illinois
 1. Revolver
 2. Low
-3. Paul's Boutique
 4. Violent Femmes
+3. Paul's Boutique
 5. Purple Rain
 6. Scary Monsters
 7. Daydream Nation
@@ -33,6 +34,9 @@
 16. Zen Arcade
 17. 13 Songs
 18. Everything Falls Apart
+
+## 1/21 Illinois - Sufjan Stevens
+Nth Listen: Very good
 
 ## 1/20 The Queen Is Dead - The Smiths
 
