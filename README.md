@@ -54,7 +54,7 @@ Nth Listen: Very good
 ## 1/8 Paul’s Boutique - Beastie Boys
 1st Listen: Pretty good
 
-## [1/7 In the Aeroplane Over The Sea - Neutral Milk Hotel](#17-In-the-Aeroplane-Over-The-Sea---Neutral-Milk-Hotel)
+## 1/7 In the Aeroplane Over The Sea - Neutral Milk Hotel
 Nth Listen: Amazing
 
 ## 1/6 New Day Rising - Hüsker Du
