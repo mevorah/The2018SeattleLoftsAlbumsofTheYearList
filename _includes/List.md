@@ -23,3 +23,5 @@
 16. [Zen Arcade - Hüsker Du (Ok)](15-zen-arcade---hüsker-du)
 17. [13 Songs - Fugazi (Ok)](#16-13-songs---fugazi)
 18. [Everything Falls Apart - Hüsker Du (NG)](#14-everything-falls-apart---hüsker-du)
+
+<iframe src="https://open.spotify.com/embed/user/1226088349/playlist/0stPoUSo8QaT2TihrKpns1" width="300" height="78" frameborder="0" allowtransparency="true" style="border-radius:8px"></iframe>
