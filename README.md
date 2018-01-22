@@ -20,7 +20,7 @@ Nth Listen: Very good
 ## [1/19 Let It Be - The Replacements](#let-it-be)
 1st Listen: Pretty good
 
-## [1/18 Daydream Nation - Sonic Youth](#daydream-nation)
+## [1/18 Daydream Nation - Sonic Youth](The2018SeattleLoftsAlbumsofTheYearList#daydream-nation)
 1st Listen: Pretty good
 
 ## [1/17 Murmur - R.E.M](#murmur)
