@@ -1,7 +1,7 @@
 # The SeattleLofts 2018 Album List
 
-1. Aeroplane Over the Sea - Neutral Milk Hotel (I)
-1. Illinois - Sufjan Stevens (VG)
+1. [Aeroplane Over the Sea - Neutral Milk Hotel (I)](#17-In-the-Aeroplane-Over-The-Sea---Neutral-Milk-Hotel)
+1. [Illinois - Sufjan Stevens (VG)](#121-Illinois---Sufjan-Stevens)
 1. Revolver - The Beatles (VG)
 2. Low - David Bowie (VG/I)
 4. Violent Femmes - Violent Femmes (VG)
