@@ -12,6 +12,7 @@
 6. Awful / The Worst
 
 ## 1/22 Rain Dogs - Tom Waits
+1st Listen: Pretty good
 
 ## 1/21 Illinois - Sufjan Stevens
 Nth Listen: Very good
@@ -39,6 +40,9 @@ Nth Listen: Very good
 
 ## 1/13 Joshua Tree - U2
 1st Listen: Pretty good
+2nd Listen: Very good
+
+Production has aged very well.
 
 ## 1/12 Violent Femmes - Violent Femmes
 1st Listen: Very good
