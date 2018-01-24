@@ -12,6 +12,7 @@
 6. Awful / The Worst
 
 ## 1/23 Abraxas - Santana
+1st Listen: Ok/Pretty good
 
 ## 1/22 Rain Dogs - Tom Waits
 1st Listen: Pretty good
@@ -36,6 +37,9 @@ Nth Listen: Very good
 
 ## 1/15 Remain In Light - Talking Heads
 1st Listen: Ok
+2nd Listen: Pretty/Very good
+
+The sounds of the 80s?
 
 ## 1/14 Revolver - The Beatles
 Nth Listen: Very good
