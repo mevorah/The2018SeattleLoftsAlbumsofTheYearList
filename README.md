@@ -40,6 +40,8 @@ Nth Listen: Very good
 ## 1/17 Murmur - R.E.M
 1st Listen: Pretty good
 
+2nd Listen: Pretty good
+
 ## 1/16 Purple Rain - Prince
 1st Listen: Pretty good
 
