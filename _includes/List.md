@@ -15,6 +15,7 @@
 11. [Graceland - Paul Simon (PG)](#110-graceland---paul-simon)
 12. [Good Bad Not Evil - The Black Lips (PG)](#13-good-bad-not-evil---the-black-lips)
 13. [Murmur - R.E.M (PG)](#117-murmur---rem)
+13. [Get Happy - Elvis Costello (Ok/PG)](#124-get-happy---elvis-costello)
 13. [Rain Dogs - Tom Waits (PG)](#122-rain-dogs---tom-waits)
 12. [The Queen Is Dead - The Smiths (Ok)](#120-the-queen-is-dead---the-smiths)
 14. [Abraxas - Santana (Ok)](#123-abraxas---santana)
