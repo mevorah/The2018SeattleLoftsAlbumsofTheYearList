@@ -5,6 +5,7 @@
 2. [Low - David Bowie (VG/I)](#11-low---david-bowie)
 4. [Violent Femmes - Violent Femmes (VG)](#112-violent-femmes---violent-femmes)
 4. [Daydream Nation - Sonic Youth (PG/VG)](#118-daydream-nation---sonic-youth)
+7. [Born To Run - Bruce Springsteen][#126-born-to-run---bruce-springsteen)
 7. [Joshua Tree - U2 (PG/VG)](#113-joshua-tree---u2)
 7. [Paul's Boutique - Beastie Boys (PG)](#18-pauls-boutique---beastie-boys)
 10. [Let It Be - The Replacements (PG/VG)](#119-let-it-be---the-replacements)
