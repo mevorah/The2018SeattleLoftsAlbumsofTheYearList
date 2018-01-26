@@ -36,7 +36,7 @@ Nth Listen: Very good
 
 ## 1/19 Let It Be - The Replacements
 * 1st Listen: Pretty good
-* 2nd Listen: Pretty/ verry good
+* 2nd Listen: Pretty/ very good
 
 
 ## 1/18 Daydream Nation - Sonic Youth
