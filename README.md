@@ -12,7 +12,7 @@
 6. Awful / The Worst
 
 ## 1/26 Born To Run - Bruce Springsteen
-1st Listen: 
+1st Listen: Pretty/ very good
 
 ## 1/25 Never Mind The Bollocks - Sex Pistols
 1st Listen: Ok/ pretty good
