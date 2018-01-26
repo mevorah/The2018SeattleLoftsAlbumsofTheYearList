@@ -11,8 +11,11 @@
 5. Not Great
 6. Awful / The Worst
 
-## 1/25 Never Mind The Bollocks - Sex Pistols
+## 1/26 Born To Run - Bruce Springsteen
 1st Listen: 
+
+## 1/25 Never Mind The Bollocks - Sex Pistols
+1st Listen: Ok/ pretty good
 
 ## 1/24 Get Happy - Elvis Costello And The Attractions
 1st Listen: Ok/ pretty good
@@ -36,6 +39,9 @@ Nth Listen: Very good
 
 ## 1/18 Daydream Nation - Sonic Youth
 1st Listen: Pretty good
+2nd Listen: Pretty/very good
+
+On the second listen, finally hear what this album is about - the landscape of dejection and teenage life in the late 80s. To a certain extent some lyrics feel dated. With that said, certain clumsely placed lyrics contribute to the genuiness of some of these songs. Musically this album contains some expansive ideas, all executed by a group that serves as a prime example of what is meant to be a 'tight band'.
 
 ## 1/17 Murmur - R.E.M
 1st Listen: Pretty good
