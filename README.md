@@ -11,6 +11,9 @@
 5. Not Great
 6. Awful / The Worst
 
+## 1/27 Rumors - Fleetwood Mac
+1st Listen: Pretty/ very good
+
 ## 1/26 Born To Run - Bruce Springsteen
 1st Listen: Pretty/ very good
 
@@ -40,22 +43,21 @@ Nth Listen: Very good
 
 
 ## 1/18 Daydream Nation - Sonic Youth
-1st Listen: Pretty good
-2nd Listen: Pretty/very good
+* 1st Listen: Pretty good
+* 2nd Listen: Pretty/very good
 
 On the second listen, finally hear what this album is about - the landscape of dejection and teenage life in the late 80s. To a certain extent some lyrics feel dated. With that said, certain clumsely placed lyrics contribute to the genuiness of some of these songs. Musically this album contains some expansive ideas, all executed by a group that serves as a prime example of what is meant to be a 'tight band'.
 
 ## 1/17 Murmur - R.E.M
-1st Listen: Pretty good
-
-2nd Listen: Pretty good
+* 1st Listen: Pretty good
+* 2nd Listen: Pretty good
 
 ## 1/16 Purple Rain - Prince
 1st Listen: Pretty good
 
 ## 1/15 Remain In Light - Talking Heads
-1st Listen: Ok
-2nd Listen: Pretty/Very good
+* 1st Listen: Ok
+* 2nd Listen: Pretty/Very good
 
 The sounds of the 80s?
 
@@ -63,8 +65,8 @@ The sounds of the 80s?
 Nth Listen: Very good
 
 ## 1/13 Joshua Tree - U2
-1st Listen: Pretty good
-2nd Listen: Pretty/ Very good
+* 1st Listen: Pretty good
+* 2nd Listen: Pretty/ Very good
 
 Production has aged very well.
 
@@ -72,8 +74,8 @@ Production has aged very well.
 1st Listen: Very good
 
 ## 1/11 Nebraska - Bruce Springsteen
-1st Listen: Pretty good
-2nd Listen: Pretty/ very good
+* 1st Listen: Pretty good
+* 2nd Listen: Pretty/ very good
 
 ## 1/10 Graceland - Paul Simon
 1st Listen: Pretty good
@@ -103,7 +105,7 @@ Nth Listen: Amazing
 1st Listen: Pretty good
 
 ## 1/1 Low - David Bowie
-1st Listen: Very good
-2nd Listen: Very good/ Amazing
+* 1st Listen: Very good
+* 2nd Listen: Very good/ Amazing
 
 Only one single if any - Sound and Vision. Otherwise the album lives only as a whole - tracking Bowies progression from addiction to the next phase in his career.
