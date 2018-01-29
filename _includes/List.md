@@ -22,6 +22,7 @@
 13. [Get Happy - Elvis Costello (Ok/PG)](#124-get-happy---elvis-costello)
 13. [Rain Dogs - Tom Waits (PG)](#122-rain-dogs---tom-waits)
 12. [The Queen Is Dead - The Smiths (Ok)](#120-the-queen-is-dead---the-smiths)
+12. [Appetite For Destruction - Guns N' Roses](#129-appetite-for-destruction---guns-n-roses)
 14. [Abraxas - Santana (Ok)](#123-abraxas---santana)
 15. [New Day Rising - Hüsker Du (Ok)](#16-new-day-rising---hüsker-du)
 16. [Zen Arcade - Hüsker Du (Ok)](#15-zen-arcade---hüsker-du)
