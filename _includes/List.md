@@ -8,7 +8,7 @@
 7. [Joshua Tree - U2 (PG/VG)](#113-joshua-tree---u2)
 4. [Daydream Nation - Sonic Youth (PG/VG)](#118-daydream-nation---sonic-youth)
 10. [Let It Be - The Replacements (PG/VG)](#119-let-it-be---the-replacements)
-10. [Rumors - Fleetwood Mac (PG/VG)][#127-rumors---fleetwood-mac)
+10. [Rumors - Fleetwood Mac (PG/VG)](#127-rumors---fleetwood-mac)
 7. [Born To Run - Bruce Springsteen (PG/VG)](#126-born-to-run---bruce-springsteen)
 7. [Paul's Boutique - Beastie Boys (PG)](#18-pauls-boutique---beastie-boys)
 7. [Remain in light - Talking Heads (PG/VG)](#115-remain-in-light---talking-heads)
