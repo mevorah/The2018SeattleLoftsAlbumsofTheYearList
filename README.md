@@ -11,6 +11,9 @@
 5. Not Great
 6. Awful / The Worst
 
+## 1/28 The Moon & Antartica - Modest Mouse
+Nth Listen: Incredible
+
 ## 1/27 Rumors - Fleetwood Mac
 1st Listen: Pretty/ very good
 
