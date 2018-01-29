@@ -12,7 +12,9 @@
 6. Awful / The Worst
 
 ## 1/29 Appetite For Destruction - Guns N' Roses
-1st Listen:
+1st Listen: Ok
+
+Slash's fantastic guitar work is present throughout the album. This along with the three solid songs on this album make it ok. Aside from that, just a ton of filler or boring subject matter.
 
 ## 1/28 The Moon & Antartica - Modest Mouse
 Nth Listen: Incredible
