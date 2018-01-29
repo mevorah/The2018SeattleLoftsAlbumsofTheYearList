@@ -70,6 +70,7 @@ Nth Listen: Very good
 ## 1/13 Joshua Tree - U2
 * 1st Listen: Pretty good
 * 2nd Listen: Pretty/ Very good
+* 3rd Listen: Very good
 
 Production has aged very well.
 
