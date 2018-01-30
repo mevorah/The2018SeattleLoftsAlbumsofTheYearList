@@ -12,7 +12,7 @@
 6. Awful / The Worst
 
 ## 1/30 Call Me - Al Green
-1st Listen:
+1st Listen: Pretty/ very good
 
 ## 1/29 Appetite For Destruction - Guns N' Roses
 1st Listen: Ok
