@@ -21,6 +21,7 @@
 11. [Graceland - Paul Simon (PG)](#110-graceland---paul-simon)
 12. [Good Bad Not Evil - The Black Lips (PG)](#13-good-bad-not-evil---the-black-lips)
 13. [Murmur - R.E.M (PG)](#117-murmur---rem)
+13. [Q: Are We Not Men? A: We Are Devo! - Devo (Ok/PG)](#21-q-are-we-not-men-a-we-are-devo---devo)
 13. [Never Mind The Bollocks - Sex Pistols (Ok/PG)](#125-never-mind-the-bollocks---sex-pistols)
 13. [Get Happy - Elvis Costello (Ok/PG)](#124-get-happy---elvis-costello)
 12. [The Queen Is Dead - The Smiths (Ok)](#120-the-queen-is-dead---the-smiths)
