@@ -12,7 +12,7 @@
 6. Awful / The Worst
 
 ## 2/1 Q: Are We Not Men? A: We Are Devo! - Devo
-1st Listen:
+1st Listen: Ok/ pretty good
 
 ## 1/31 Computer World - Kraftwerk
 1st Listen: Pretty/ very good
@@ -46,14 +46,17 @@ The opening track has Elvis Costello at his worst. What really pulled me in was 
 1st Listen: Ok/Pretty good
 
 ## 1/22 Rain Dogs - Tom Waits
-1st Listen: Pretty good
+* 1st Listen: Pretty good
+* 2nd Listen: Pretty/ very good
+
+The landscapes he paints with his music is extraordinary. The percusion is a highlight.
 
 ## 1/21 Illinois - Sufjan Stevens
 Nth Listen: Very good
 
 ## 1/20 The Queen Is Dead - The Smiths
-1st Listen: Ok
-2nd Listen: Ok
+* 1st Listen: Ok
+* 2nd Listen: Ok
 
 ## 1/19 Let It Be - The Replacements
 * 1st Listen: Pretty good
@@ -90,8 +93,8 @@ Nth Listen: Very good
 Production has aged very well.
 
 ## 1/12 Violent Femmes - Violent Femmes
-1st Listen: Very good
-2nd Listen: Very good
+* 1st Listen: Very good
+* 2nd Listen: Very good
 
 ## 1/11 Nebraska - Bruce Springsteen
 * 1st Listen: Pretty good
