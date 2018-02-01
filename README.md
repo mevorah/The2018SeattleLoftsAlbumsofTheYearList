@@ -11,6 +11,9 @@
 5. Not Great
 6. Awful / The Worst
 
+## 1/31 Computer World - Kraftwerk
+1st Listen: 
+
 ## 1/30 Call Me - Al Green
 1st Listen: Pretty/ very good
 
