@@ -50,6 +50,7 @@ Nth Listen: Very good
 
 ## 1/20 The Queen Is Dead - The Smiths
 1st Listen: Ok
+2nd Listen: Ok
 
 ## 1/19 Let It Be - The Replacements
 * 1st Listen: Pretty good
