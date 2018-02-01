@@ -11,6 +11,7 @@
 10. [Rumors - Fleetwood Mac (PG/VG)](#127-rumors---fleetwood-mac)
 10. [Call Me - Al Green (PG/VG)](#130-call-me---al-green)
 7. [Born To Run - Bruce Springsteen (PG/VG)](#126-born-to-run---bruce-springsteen)
+7. [Computer World - Kraftwerk (PG/VG)](#131-computer-world---kraftwerk)
 7. [Paul's Boutique - Beastie Boys (PG)](#18-pauls-boutique---beastie-boys)
 7. [Remain in light - Talking Heads (PG/VG)](#115-remain-in-light---talking-heads)
 7. [Purple Rain - Prince (PG)](#116-purple-rain---prince)
