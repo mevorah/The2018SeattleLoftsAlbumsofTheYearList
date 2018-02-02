@@ -11,11 +11,15 @@
 5. Not Great
 6. Awful / The Worst
 
+## 2/2 Exile On Main Street - Rolling Stones
+1st Listen:
+
 ## 2/1 Q: Are We Not Men? A: We Are Devo! - Devo
 1st Listen: Ok/ pretty good
 
 ## 1/31 Computer World - Kraftwerk
 1st Listen: Pretty/ very good
+2nd Listen: Pretty/ very good
 
 ## 1/30 Call Me - Al Green
 1st Listen: Pretty/ very good
