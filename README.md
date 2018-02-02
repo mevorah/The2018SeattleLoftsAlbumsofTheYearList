@@ -48,6 +48,7 @@ The opening track has Elvis Costello at his worst. What really pulled me in was 
 
 ## 1/23 Abraxas - Santana
 1st Listen: Ok/Pretty good
+2nd Listen: Ok/Pretty good
 
 ## 1/22 Rain Dogs - Tom Waits
 * 1st Listen: Pretty good
