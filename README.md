@@ -47,8 +47,8 @@ Nth Listen: Incredible
 The opening track has Elvis Costello at his worst. What really pulled me in was the guitar on Opportunity, and the Ska-esq bass on The Imposter. By Secondary Modern, vocals have dropped to bearable levels. King Horse brings the entire band onto the same level, opening the rest of the album. Perhaps the first three songs grouped together can be thought of as the intro? This would be plausible, but then comes Possesion, as if starting from the beginnig again.
 
 ## 1/23 Abraxas - Santana
-1st Listen: Ok/Pretty good
-2nd Listen: Ok/Pretty good
+* 1st Listen: Ok/Pretty good
+* 2nd Listen: Ok/Pretty good
 
 ## 1/22 Rain Dogs - Tom Waits
 * 1st Listen: Pretty good
