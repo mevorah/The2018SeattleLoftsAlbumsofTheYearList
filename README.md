@@ -11,6 +11,9 @@
 5. Not Great
 6. Awful / The Worst
 
+## 2/4 High Violet - The National
+Nth Listen: Very good
+
 ## 2/3 Post - Bjork
 1st Listen: Ok/ Pretty good
 
