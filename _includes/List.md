@@ -23,7 +23,7 @@
 12. [Good Bad Not Evil - The Black Lips (PG)](#13-good-bad-not-evil---the-black-lips)
 13. [Murmur - R.E.M (PG)](#117-murmur---rem)
 13. [Never Mind The Bollocks - Sex Pistols (Ok/PG)](#125-never-mind-the-bollocks---sex-pistols)
-13. [Post - Bjork (Ok/PG)][#23-post-bjork]
+13. [Post - Bjork (Ok/PG)](#23-post---bjork)
 14. [Abraxas - Santana (Ok/PG)](#123-abraxas---santana)
 13. [Q: Are We Not Men? A: We Are Devo! - Devo (Ok/PG)](#21-q-are-we-not-men-a-we-are-devo---devo)
 13. [Exile On Main Street - Rolling Stones (Ok/PG)](#22-exile-on-main-street---rolling-stones)
