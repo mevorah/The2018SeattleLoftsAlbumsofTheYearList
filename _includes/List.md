@@ -4,6 +4,7 @@
 1. [Aeroplane Over the Sea - Neutral Milk Hotel (I)](#17-in-the-aeroplane-over-the-sea---neutral-milk-hotel)
 1. [Illinois - Sufjan Stevens (VG)](#121-illinois---sufjan-stevens)
 1. [Revolver - The Beatles (VG)](#114-revolver---the-beatles)
+1. [High Violet - The National (VG)](#24-high-violet---the-national)
 2. [Low - David Bowie (VG/I)](#11-low---david-bowie)
 4. [Violent Femmes - Violent Femmes (VG)](#112-violent-femmes---violent-femmes)
 7. [Joshua Tree - U2 (VG)](#113-joshua-tree---u2)
