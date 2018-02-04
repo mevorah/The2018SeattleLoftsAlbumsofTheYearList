@@ -32,7 +32,7 @@
 
 Slash's fantastic guitar work is present throughout the album. This along with the three solid songs on this album make it ok. Aside from that, just a ton of filler on boring subject matter.
 
-## 1/28 The Moon & Antartica - Modest Mouse
+## 1/28 The Moon & Antarctica - Modest Mouse
 Nth Listen: Incredible
 
 ## 1/27 Rumors - Fleetwood Mac
