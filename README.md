@@ -103,6 +103,7 @@ Production has aged very well.
 ## 1/12 Violent Femmes - Violent Femmes
 * 1st Listen: Very good
 * 2nd Listen: Very good
+* **3rd Listen: Very good**
 
 ## 1/11 Nebraska - Bruce Springsteen
 * 1st Listen: Pretty good
