@@ -11,8 +11,11 @@
 5. Not Great
 6. Awful / The Worst
 
+## 2/3 Post - Bjork
+1st Listen: Ok/ Pretty good
+
 ## 2/2 Exile On Main Street - Rolling Stones
-1st Listen:
+1st Listen: Ok/ Pretty good
 
 ## 2/1 Q: Are We Not Men? A: We Are Devo! - Devo
 1st Listen: Ok/ pretty good
