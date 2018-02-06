@@ -12,7 +12,7 @@
 6. Awful / The Worst
 
 ## 2/5 Crookes Rain, Crooked Rain - Pavement
-1st Listen:
+1st Listen: Pretty good
 
 ## 2/4 High Violet - The National
 Nth Listen: Very good
