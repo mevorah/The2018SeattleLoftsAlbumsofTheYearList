@@ -8,7 +8,7 @@
 2. [Low - David Bowie (VG/I)](#11-low---david-bowie)
 4. [Violent Femmes - Violent Femmes (VG)](#112-violent-femmes---violent-femmes)
 7. [Joshua Tree - U2 (VG)](#113-joshua-tree---u2)
-7. [Paul Simon - Paul Simon(VG)](#26-paul-simon---paul-simon)
+7. [Paul Simon - Paul Simon (VG)](#26-paul-simon---paul-simon)
 4. [Daydream Nation - Sonic Youth (PG/VG)](#118-daydream-nation---sonic-youth)
 10. [Let It Be - The Replacements (PG/VG)](#119-let-it-be---the-replacements)
 10. [Rumors - Fleetwood Mac (PG/VG)](#127-rumors---fleetwood-mac)
