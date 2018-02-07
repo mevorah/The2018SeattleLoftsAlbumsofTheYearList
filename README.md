@@ -12,13 +12,16 @@
 6. Awful / The Worst
 
 ## 2/7 Station To Station - David Bowie
-1st Listen:
+1st Listen: Pretty/ very good
 
 ## 2/6 Paul Simon - Paul Simon
 1st Listen: Very good
 
 ## 2/5 Crookes Rain, Crooked Rain - Pavement
 1st Listen: Pretty good
+2nd Listen: Very good/ (may be incredible)
+
+So many influences and deadpan lyrics, and so much musical variety - this album may have it all. Phenomenal.
 
 ## 2/4 High Violet - The National
 Nth Listen: Very good
