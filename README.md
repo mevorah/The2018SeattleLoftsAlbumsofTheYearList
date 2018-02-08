@@ -18,14 +18,14 @@
 1st Listen: Pretty/ very good
 
 ## 2/6 Paul Simon - Paul Simon
-1st Listen: Very good
-2nd Listen: Pretty/ very good
+* 1st Listen: Very good
+* 2nd Listen: Pretty/ very good
 
 Fantastic songs, Paul Simon's voice is incredible - surely an influence on Elliot Smith. Upon the second listen, the lyrics were lacking in a handfull of songs. Third listen will tell.
 
 ## 2/5 Crookes Rain, Crooked Rain - Pavement
-1st Listen: Pretty good
-2nd Listen: Very good/ (may be incredible)
+* 1st Listen: Pretty good
+* 2nd Listen: Very good/ (may be incredible)
 
 So many influences and deadpan lyrics, and so much musical variety - this album may have it all. Phenomenal.
 
@@ -36,8 +36,8 @@ Nth Listen: Very good
 1st Listen: Ok/ Pretty good
 
 ## 2/2 Exile On Main Street - Rolling Stones
-1st Listen: Ok/ Pretty good
-2nd Listen: Pretty good
+* 1st Listen: Ok/ Pretty good
+* 2nd Listen: Pretty good
 
 So many instruments going. Super upbeat. Thoroughly enjoyable blues. With that said, only a handful of songs really stand out - there is a uniformity across the album.
 
@@ -45,8 +45,8 @@ So many instruments going. Super upbeat. Thoroughly enjoyable blues. With that s
 1st Listen: Ok/ pretty good
 
 ## 1/31 Computer World - Kraftwerk
-1st Listen: Pretty/ very good
-2nd Listen: Pretty/ very good
+* 1st Listen: Pretty/ very good
+* 2nd Listen: Pretty/ very good
 
 ## 1/30 Call Me - Al Green
 1st Listen: Pretty/ very good
