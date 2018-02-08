@@ -11,11 +11,17 @@
 5. Not Great
 6. Awful / The Worst
 
+## 2/8 Cosmo's Factory - Creedence Clearwater Revival
+1st Listen:
+
 ## 2/7 Station To Station - David Bowie
 1st Listen: Pretty/ very good
 
 ## 2/6 Paul Simon - Paul Simon
 1st Listen: Very good
+2nd Listen: Pretty/ very good
+
+Fantastic songs, Paul Simon's voice is incredible - surely an influence on Elliot Smith. Upon the second listen, the lyrics were lacking in a handfull of songs. Third listen will tell.
 
 ## 2/5 Crookes Rain, Crooked Rain - Pavement
 1st Listen: Pretty good
@@ -31,6 +37,9 @@ Nth Listen: Very good
 
 ## 2/2 Exile On Main Street - Rolling Stones
 1st Listen: Ok/ Pretty good
+2nd Listen: Pretty good
+
+So many instruments going. Super upbeat. Thoroughly enjoyable blues. With that said, only a handful of songs really stand out - there is a uniformity across the album.
 
 ## 2/1 Q: Are We Not Men? A: We Are Devo! - Devo
 1st Listen: Ok/ pretty good
