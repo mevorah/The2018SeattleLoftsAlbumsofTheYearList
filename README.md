@@ -11,8 +11,11 @@
 5. Not Great
 6. Awful / The Worst
 
+## 2/9 Another Green World - Brian Eno
+1st Listen: 
+
 ## 2/8 Cosmo's Factory - Creedence Clearwater Revival
-1st Listen:
+1st Listen: Pretty good
 
 ## 2/7 Station To Station - David Bowie
 1st Listen: Pretty/ very good
@@ -63,7 +66,10 @@ Nth Listen: Incredible
 1st Listen: Pretty/ very good
 
 ## 1/26 Born To Run - Bruce Springsteen
-1st Listen: Pretty/ very good
+* 1st Listen: Pretty/ very good
+* 2nd Listen: Very good
+
+The first half of this album is cranked up to 10. Great song writing, tasteful use of the saxaphone, great!
 
 ## 1/25 Never Mind The Bollocks - Sex Pistols
 1st Listen: Ok/ pretty good
