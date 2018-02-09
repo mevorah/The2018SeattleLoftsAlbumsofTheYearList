@@ -23,7 +23,7 @@
 7. [Purple Rain - Prince (PG)](#116-purple-rain---prince)
 9. [Nebraska - Bruce Springsteen (PG/VG)](#111-nebraska---bruce-springsteen)
 9. [Cosmo's Factory - Creedence Clearwater Revival (PG)](#28-cosmos-factory---creedence-clearwater-revival)
-13. [Exile On Main Street - Rolling Stones (Ok/PG)](#22-exile-on-main-street---rolling-stones)
+13. [Exile On Main Street - Rolling Stones (PG)](#22-exile-on-main-street---rolling-stones)
 6. [Scary Monsters - David Bowie (PG)](#19-scary-monsters--david-bowie)
 11. [Graceland - Paul Simon (PG)](#110-graceland---paul-simon)
 12. [Good Bad Not Evil - The Black Lips (PG)](#13-good-bad-not-evil---the-black-lips)
