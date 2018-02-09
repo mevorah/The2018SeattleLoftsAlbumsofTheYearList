@@ -12,7 +12,7 @@
 6. Awful / The Worst
 
 ## 2/9 Another Green World - Brian Eno
-1st Listen: 
+1st Listen: Pretty/ Very good
 
 ## 2/8 Cosmo's Factory - Creedence Clearwater Revival
 1st Listen: Pretty good
@@ -110,6 +110,9 @@ On the second listen, finally hear what this album is about - the landscape of d
 ## 1/17 Murmur - R.E.M
 * 1st Listen: Pretty good
 * 2nd Listen: Pretty good
+* 3rd Listen: Very good
+
+There is no doubt that this is a great album with excellent song writing.. but god damn does the production feel dated, as though firmly stuck in the era of 80's dad-rock.
 
 ## 1/16 Purple Rain - Prince
 1st Listen: Pretty good
