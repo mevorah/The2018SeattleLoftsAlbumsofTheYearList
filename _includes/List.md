@@ -9,7 +9,7 @@
 1. [High Violet - The National (VG)](#24-high-violet---the-national)
 4. [Violent Femmes - Violent Femmes (VG)](#112-violent-femmes---violent-femmes)
 7. [Joshua Tree - U2 (VG)](#113-joshua-tree---u2)
-7. [Born To Run - Bruce Springsteen (PG/VG)](#126-born-to-run---bruce-springsteen)
+7. [Born To Run - Bruce Springsteen (VG)](#126-born-to-run---bruce-springsteen)
 4. [Daydream Nation - Sonic Youth (PG/VG)](#118-daydream-nation---sonic-youth)
 7. [Paul Simon - Paul Simon (PG/VG)](#26-paul-simon---paul-simon)
 10. [Let It Be - The Replacements (PG/VG)](#119-let-it-be---the-replacements)
