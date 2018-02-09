@@ -12,7 +12,8 @@
 6. Awful / The Worst
 
 ## 2/9 Another Green World - Brian Eno
-1st Listen: Pretty/ Very good
+* 1st Listen: Pretty/ Very good
+* 2nd Listen (Same Day): Pretty/ Very good
 
 ## 2/8 Cosmo's Factory - Creedence Clearwater Revival
 1st Listen: Pretty good
