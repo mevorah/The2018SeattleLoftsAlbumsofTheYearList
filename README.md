@@ -11,6 +11,9 @@
 5. Not Great
 6. Awful / The Worst
 
+## 2/10 Odelay - Beck
+* Nth Listen: Amazing
+
 ## 2/9 Another Green World - Brian Eno
 * 1st Listen: Pretty/ Very good
 * 2nd Listen (Same Day): Pretty/ Very good
