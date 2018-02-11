@@ -1,5 +1,5 @@
 # The SeattleLofts 2018 Album List
-[↖SeattleLofts](/)
+**[SeattleLofts](/)**
 1. [The Moon & Antarctica - Modest Mouse (I)](#128-the-moon--antarctica---modest-mouse)
 1. [Aeroplane Over the Sea - Neutral Milk Hotel (I)](#17-in-the-aeroplane-over-the-sea---neutral-milk-hotel)
 1. [Illinois - Sufjan Stevens (VG)](#121-illinois---sufjan-stevens)
