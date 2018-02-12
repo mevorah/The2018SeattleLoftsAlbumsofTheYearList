@@ -11,6 +11,12 @@
 5. Not Great
 6. Awful / The Worst
 
+## 2/12 Bitches Brew - Miles Davis
+* 1st Listen: 
+
+## 2/11 More Songs About Buildings And Food - Talking Heads
+* 1st Listen: Unknown
+
 ## 2/10 Odelay - Beck
 * Nth Listen: Amazing
 
