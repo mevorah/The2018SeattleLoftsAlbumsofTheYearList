@@ -24,6 +24,7 @@
 7. [Paul's Boutique - Beastie Boys (PG)](#18-pauls-boutique---beastie-boys)
 7. [Remain in light - Talking Heads (PG/VG)](#115-remain-in-light---talking-heads)
 7. [Purple Rain - Prince (PG)](#116-purple-rain---prince)
+7. [Bitches Brew - Miles Davis (PG)](#212-bitches-brew---miles-davis)
 9. [Nebraska - Bruce Springsteen (PG/VG)](#111-nebraska---bruce-springsteen)
 9. [Cosmo's Factory - Creedence Clearwater Revival (PG)](#28-cosmos-factory---creedence-clearwater-revival)
 13. [Exile On Main Street - Rolling Stones (PG)](#22-exile-on-main-street---rolling-stones)
