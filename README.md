@@ -15,7 +15,7 @@
 * 1st Listen:
 
 ## 2/12 Bitches Brew - Miles Davis
-* 1st Listen: Pretty/ very good
+* 1st Listen: Pretty good
 
 But honestly, how do you rate such an album. It's clear that this album is great, but I have no idea why. Lets bank on future listens.
 
