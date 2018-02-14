@@ -11,8 +11,11 @@
 5. Not Great
 6. Awful / The Worst
 
-## 2/13 Rio - Duran Duran
+## 2/14 Sign 'O' The Times - Prince
 * 1st Listen:
+
+## 2/13 Rio - Duran Duran
+* 1st Listen: Not great
 
 ## 2/12 Bitches Brew - Miles Davis
 * 1st Listen: Pretty good
@@ -24,6 +27,8 @@ But honestly, how do you rate such an album. It's clear that this album is great
 
 ## 2/10 Odelay - Beck
 * Nth Listen: Amazing
+
+I love this album. Perhaps the greatest backdrop.
 
 ## 2/9 Another Green World - Brian Eno
 * 1st Listen: Pretty/ Very good
