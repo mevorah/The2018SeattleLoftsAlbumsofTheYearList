@@ -11,8 +11,11 @@
 5. Not Great
 6. Awful / The Worst
 
-## 2/14 Sign 'O' The Times - Prince
+## 2/15 Goo - Sonic Youth
 * 1st Listen:
+
+## 2/14 Sign 'O' The Times - Prince
+* 1st Listen: Pretty good
 
 ## 2/13 Rio - Duran Duran
 * 1st Listen: Not great
