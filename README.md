@@ -11,8 +11,11 @@
 5. Not Great
 6. Awful / The Worst
 
-## 2/15 Goo - Sonic Youth
+## 2/16 Reckoning - R.E.M
 * 1st Listen:
+
+## 2/15 Goo - Sonic Youth
+* 1st Listen: Ok/ pretty good
 
 ## 2/14 Sign 'O' The Times - Prince
 * 1st Listen: Pretty good
