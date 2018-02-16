@@ -62,7 +62,8 @@ So many influences and deadpan lyrics, and so much musical variety - this album 
 Nth Listen: Very good
 
 ## 2/3 Post - Bjork
-1st Listen: Ok/ Pretty good
+* 1st Listen: Ok/ Pretty good
+* 2nd Listen: Pretty good
 
 ## 2/2 Exile On Main Street - Rolling Stones
 * 1st Listen: Ok/ Pretty good
