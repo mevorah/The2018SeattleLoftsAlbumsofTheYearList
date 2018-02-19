@@ -11,8 +11,11 @@
 5. Not Great
 6. Awful / The Worst
 
+## 2/19 Kid A - Radiohead
+* 1st Listen:
+
 ## 2/18 Back To Black - Amy Winehouse
-* Pretty good
+* 1st Listen: Pretty good
 
 ## 2/17 Blue - Joni Mitchell
 * 1st Listen: Ok/ pretty good
