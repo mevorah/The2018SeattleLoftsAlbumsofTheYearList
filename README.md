@@ -11,8 +11,14 @@
 5. Not Great
 6. Awful / The Worst
 
+## 2/18 Back To Black - Amy Winehouse
+* Pretty good
+
+## 2/17 Blue - Joni Mitchell
+* 1st Listen: Ok/ pretty good
+
 ## 2/16 Reckoning - R.E.M
-* 1st Listen:
+* 1st Listen: Pretty good
 
 ## 2/15 Goo - Sonic Youth
 * 1st Listen: Ok/ pretty good
@@ -32,9 +38,9 @@ But honestly, how do you rate such an album. It's clear that this album is great
 * 1st Listen: Unknown
 
 ## 2/10 Odelay - Beck
-* Nth Listen: Amazing
+* Nth Listen: Very good/ Amazing
 
-I love this album. Perhaps the greatest backdrop.
+I love this album.
 
 ## 2/9 Another Green World - Brian Eno
 * 1st Listen: Pretty/ Very good
