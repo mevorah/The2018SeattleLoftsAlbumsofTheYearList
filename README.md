@@ -12,7 +12,7 @@
 6. Awful / The Worst
 
 ## 2/19 Kid A - Radiohead
-* 1st Listen:
+* 1st Listen: Very good
 
 ## 2/18 Back To Black - Amy Winehouse
 * 1st Listen: Pretty good
