@@ -4,6 +4,7 @@
 1. [Aeroplane Over the Sea - Neutral Milk Hotel (I)](#17-in-the-aeroplane-over-the-sea---neutral-milk-hotel)
 1. [Odelay - Beck (PG/A)](#210-odelay---beck)
 1. [Illinois - Sufjan Stevens (VG)](#121-illinois---sufjan-stevens)
+1. [Kid A - Radiohead (VG)](#219-kid-a---radiohead)
 2. [Low - David Bowie (VG/I)](#11-low---david-bowie)
 1. [Revolver - The Beatles (VG)](#114-revolver---the-beatles)
 9. [Crooked Rain, Crooked Rain - Pavement (VG)](#25-crooked-rain-crooked-rain---pavement)
