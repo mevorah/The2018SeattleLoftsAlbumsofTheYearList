@@ -11,8 +11,13 @@
 5. Not Great
 6. Awful / The Worst
 
+## 2/21 Getz/ Gilberto - Stan Getz
+* 1st Listen:
+
+This album is easy - it doesn't take multiple listens to get or enjoy. Is the pay-off less? Perhaps so. But when you're on-call, this refreshing album may be the best break in the week.
+
 ## 2/20 Sunshine Superman - Donovan
-* 1st Listen: 
+* 1st Listen: Ok/ pretty good
 
 ## 2/19 Kid A - Radiohead
 * 1st Listen: Very good
