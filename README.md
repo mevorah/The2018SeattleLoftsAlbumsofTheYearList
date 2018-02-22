@@ -11,8 +11,11 @@
 5. Not Great
 6. Awful / The Worst
 
-## 2/21 Getz/ Gilberto - Stan Getz
+## 2/22 Elvis Presley - Elvis Presley
 * 1st Listen:
+
+## 2/21 Getz/ Gilberto - Stan Getz
+* 1st Listen: Pretty good
 
 This album is easy - it doesn't take multiple listens to get or enjoy. Is the pay-off less? Perhaps so. But when you're on-call, this refreshing album may be the best break in the week.
 
