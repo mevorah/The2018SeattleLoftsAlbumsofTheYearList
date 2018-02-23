@@ -17,6 +17,8 @@
 ## 2/22 Elvis Presley - Elvis Presley
 * 1st Listen: Pretty good
 
+So this guy Elvis is pretty good 
+
 ## 2/21 Getz/ Gilberto - Stan Getz
 * 1st Listen: Pretty good
 
