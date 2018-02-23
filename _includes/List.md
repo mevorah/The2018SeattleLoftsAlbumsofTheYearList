@@ -32,6 +32,7 @@
 13. [Post - Bjork (PG)](#23-post---bjork)
 12. [Good Bad Not Evil - The Black Lips (PG)](#13-good-bad-not-evil---the-black-lips)
 12. [Getz/ Gilberto - Stan Getz (PG)](#221-getz-gilberto---stan-getz)
+12. [Elvis Presley - Elvis Presley (PG)](#223-elvis-presley---elvis-presley)
 9. [Cosmo's Factory - Creedence Clearwater Revival (PG)](#28-cosmos-factory---creedence-clearwater-revival)
 11. [Graceland - Paul Simon (PG)](#110-graceland---paul-simon)
 6. [Scary Monsters - David Bowie (PG)](#19-scary-monsters--david-bowie)
