@@ -29,7 +29,7 @@ This album is easy - it doesn't take multiple listens to get or enjoy. Is the pa
 * 1st Listen: Very good
 * 2nd Listen: Very good
 
-Hearing rock influences is so common - this is the first where I hear electronic. The influence of Aphex Twin can certainly be heard on this album. Thom Yorke's voice bends between instruments. Every track evokes emotion. 10/11 - Mark Mevorah, New York Times
+Hearing rock influences is so common, but this is the first where I heard electronic. Aphex Twin is all over this (in the best way)! Thom Yorke's voice bends between instruments. Every track evokes emotion. 10/11 - Mark Mevorah, New York Times
 
 ## 2/18 Back To Black - Amy Winehouse
 * 1st Listen: Pretty good
