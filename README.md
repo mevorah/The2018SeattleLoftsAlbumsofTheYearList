@@ -11,8 +11,11 @@
 5. Not Great
 6. Awful / The Worst
 
+## 2/23 Blonde On Blonde - Bob Dylan
+* 1st Listen: 
+
 ## 2/22 Elvis Presley - Elvis Presley
-* 1st Listen:
+* 1st Listen: Pretty good
 
 ## 2/21 Getz/ Gilberto - Stan Getz
 * 1st Listen: Pretty good
