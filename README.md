@@ -1,3 +1,5 @@
+This is a project aimed at filling my musical blindspots. With that, I favor albums I've never heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
+
 **Listening**
 1. Priming pass - listen in the morning
 2. Second pass - form an opinion.. at night
@@ -10,8 +12,6 @@
 4. Ok
 5. Not Great
 6. Awful / The Worst
-
-This is a project aimed at filling my musical blindspots. With that, I favor albums I've never heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
 ## 2/26 Andy Warhole - The Velvet Underground
 * 1st Listen:
