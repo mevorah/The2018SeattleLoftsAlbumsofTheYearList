@@ -11,8 +11,23 @@
 5. Not Great
 6. Awful / The Worst
 
+This is a project aimed at filling my musical blindspots. With that, I favor albums I've never heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
+
+## 2/26 Andy Warhole - The Velvet Underground
+* 1st Listen:
+
+## 2/25 After The Gold Rush - Neil Young
+* ~5th Listen: Very good
+
+The songs stand for themselves - surounded by limited instruments, Neil Young puts a lot of this album's weight on it's melodies. In doing so, he fully succeeds.
+
+## 2/24 Helplessness Blues - Fleet Foxes
+* nth Listen: Pretty/ very good
+
+I hadn't listened to this album in seven years. With a fresh look, it's still great. If I had an orchard, I'd work til I'm sore - I would too.. I would too.
+
 ## 2/23 Blonde On Blonde - Bob Dylan
-* 1st Listen: 
+* 1st Listen: Pretty/ very good
 
 ## 2/22 Elvis Presley - Elvis Presley
 * 1st Listen: Pretty good
