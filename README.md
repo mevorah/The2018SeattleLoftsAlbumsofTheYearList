@@ -14,7 +14,9 @@ This is a project aimed at filling my musical blindspots, favoring albums I have
 6. Awful / The Worst
 
 ## 2/26 Andy Warhole - The Velvet Underground
-* 1st Listen:
+* 1st Listen: Ok/ pretty good
+
+Better than Pet Sounds? I. Don't. Think. So!
 
 ## 2/25 After The Gold Rush - Neil Young
 * ~5th Listen: Very good
