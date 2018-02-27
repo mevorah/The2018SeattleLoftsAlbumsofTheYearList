@@ -24,7 +24,7 @@ Better than Pet Sounds? I. Don't. Think. So!
 ## 2/25 After The Gold Rush - Neil Young
 * ~5th Listen: Very good
 
-The songs stand for themselves - surounded by limited instruments, Neil Young puts a lot of this album's weight on it's melodies. In doing so, he fully succeeds.
+The songs stand for themselves - keeping the number of instruments to a minimum, Neil Young puts a lot of this album's weight on its melodies. He fully succeeds.
 
 ## 2/24 Helplessness Blues - Fleet Foxes
 * nth Listen: Pretty/ very good
@@ -50,6 +50,8 @@ This album is easy - it doesn't take multiple listens to get or enjoy. Is the pa
 ## 2/19 Kid A - Radiohead
 * 1st Listen: Very good
 * 2nd Listen: Very good
+* 3rd Listen: Very good
+* 4th Listen: Very good/ incredible
 
 Hearing rock influences is so common, but this is the first where I heard electronic. Aphex Twin is all over this (in the best way)! Thom Yorke's voice bends between instruments. Every track evokes emotion. 10/11 - Mark Mevorah, New York Times
 
