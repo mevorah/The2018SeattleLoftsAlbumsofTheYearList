@@ -13,6 +13,9 @@ This is a project aimed at filling my musical blindspots, favoring albums I have
 5. Not Great
 6. Awful / The Worst
 
+## 2/27 I Never Loved A Man The Way I Love You - Aretha Franklin
+* 1st Listen:
+
 ## 2/26 Andy Warhole - The Velvet Underground
 * 1st Listen: Ok/ pretty good
 
