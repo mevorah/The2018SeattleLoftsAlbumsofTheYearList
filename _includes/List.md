@@ -36,7 +36,7 @@
 13. [Post - Bjork (PG)](#23-post---bjork)
 13. [Stand - Sly & The Family Stone (PG)](#228-stand---sly-&-the-family-stone)
 12. [Good Bad Not Evil - The Black Lips (PG)](#13-good-bad-not-evil---the-black-lips)
-12. [Os Mutantes - Os Mutantes (PG)][#31-os-mutantes---os-mutantes]
+12. [Os Mutantes - Os Mutantes (PG)](#31-os-mutantes---os-mutantes)
 12. [Getz/ Gilberto - Stan Getz (PG)](#221-getz-gilberto---stan-getz)
 12. [Elvis Presley - Elvis Presley (PG)](#223-elvis-presley---elvis-presley)
 13. [Q: Are We Not Men? A: We Are Devo! - Devo (PG)](#21-q-are-we-not-men-a-we-are-devo---devo)
