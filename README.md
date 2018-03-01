@@ -13,6 +13,13 @@ This is a project aimed at filling my musical blindspots, favoring albums I have
 5. Not Great
 6. Awful / The Worst
 
+## 3/1 Os Mutantes - Os Mutantes
+* 1st Listen:
+
+Panis Et Circenses - some boroque, some tape delays; can this be the Brazilian Beach Boys or Beatles? A Minha Menina - nope! The album is rich of experimentation - take O Relógio, with an intro that's practically drowning in reverb, with a quick-cut to colage of tropicalia.
+
+## 2/28 
+
 ## 2/27 I Never Loved A Man The Way I Love You - Aretha Franklin
 * 1st Listen:
 
