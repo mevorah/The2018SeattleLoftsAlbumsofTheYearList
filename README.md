@@ -14,14 +14,15 @@ This is a project aimed at filling my musical blindspots, favoring albums I have
 6. Awful / The Worst
 
 ## 3/1 Os Mutantes - Os Mutantes
-* 1st Listen:
+* 1st Listen: Pretty good
 
 Panis Et Circenses - some boroque, some tape delays; can this be the Brazilian Beach Boys or Beatles? A Minha Menina - nope! The album is rich of experimentation - take O Relógio, with an intro that's practically drowning in reverb, with a quick-cut to colage of tropicalia.
 
-## 2/28 
+## 2/28 Stand - Sly & The Family Stone
+* 1st Listen: Pretty good
 
 ## 2/27 I Never Loved A Man The Way I Love You - Aretha Franklin
-* 1st Listen:
+* 1st Listen: Pretty/ very good
 
 ## 2/26 Andy Warhole - The Velvet Underground
 * 1st Listen: Ok/ pretty good
@@ -130,6 +131,7 @@ So many instruments going. Super upbeat. Thoroughly enjoyable blues. With that s
 
 ## 2/1 Q: Are We Not Men? A: We Are Devo! - Devo
 1st Listen: Ok/ pretty good
+2nd Listen: Pretty good
 
 ## 1/31 Computer World - Kraftwerk
 * 1st Listen: Pretty/ very good
