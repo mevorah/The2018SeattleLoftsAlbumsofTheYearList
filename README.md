@@ -272,7 +272,6 @@ Nth Listen: Amazing
 
 ## 1/1 Low - David Bowie
 
-<span display="inline-block">
 <p style="float:left">
   <img src="https://upload.wikimedia.org/wikipedia/en/9/93/Low_%28album%29.jpg">
 </p>
@@ -285,6 +284,5 @@ Nth Listen: Amazing
   Only one single if any - Sound and Vision. Otherwise the album lives only as a whole - tracking Bowies progression from addiction to the next phase in his career.
   </p>
 </p>
-</span>
 
 
