@@ -279,7 +279,10 @@ Nth Listen: Amazing
   <ul>
     <li>1st Listen: Very good</li>
     <li>2nd Listen: Very good/ Amazing</li>
+  </ul>
   <p>
-  Only one single if any - Sound and Vision. Otherwise the album lives only as a whole - tracking Bowies progression from addiction to the next phase in his career.
+    Only one single if any - Sound and Vision. Otherwise the album lives only as a whole - tracking Bowies progression from addiction to the next phase in his career.
+  </p>
+</p>
 
 
