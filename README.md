@@ -272,10 +272,10 @@ Nth Listen: Amazing
 
 ## 1/1 Low - David Bowie
 
-<div style="float:left">
+<div style="float:left; width:40%">
   <img src="https://upload.wikimedia.org/wikipedia/en/9/93/Low_%28album%29.jpg">
 </div>
-<div style="float:right">
+<div style="float:right; width:40%">
   <ul>
     <li>1st Listen: Very good</li>
     <li>2nd Listen: Very good/ Amazing</li>
