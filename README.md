@@ -271,12 +271,9 @@ Nth Listen: Amazing
 1st Listen: Pretty good
 
 ## 1/1 Low - David Bowie
-<p>
 ![alt text](https://upload.wikimedia.org/wikipedia/en/9/93/Low_%28album%29.jpg)
-</p>
-<p>
+
 * 1st Listen: Very good
 * 2nd Listen: Very good/ Amazing
 
 Only one single if any - Sound and Vision. Otherwise the album lives only as a whole - tracking Bowies progression from addiction to the next phase in his career.
-</p>
