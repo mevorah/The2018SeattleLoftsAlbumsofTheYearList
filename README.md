@@ -16,6 +16,11 @@ This is a project aimed at filling my musical blindspots, favoring albums I have
 ## 3/3 Smiley Smile - Beach Boys
 * 1st Listen:
 
+## 3/2/3 Last Splash - The Breeders
+* 1st/2nd Listen: Pretty good
+
+This album is thoroughly enjoyable all the way through. It's clear to see Kim Deal's influence on the Pixes.
+
 ## 3/2 Trompe Le Monde - Pixes
 * 1st Listen: Ok/ pretty good
 
