@@ -13,10 +13,16 @@ This is a project aimed at filling my musical blindspots, favoring albums I have
 5. Not Great
 6. Awful / The Worst
 
+## 3/3 Smiley Smile - Beach Boys
+* 1st Listen:
+
+## 3/2 Trompe Le Monde - Pixes
+* 1st Listen: Ok/ pretty good
+
 ## 3/1 Os Mutantes - Os Mutantes
 * 1st Listen: Pretty good
 
-Panis Et Circenses - some boroque, some tape delays; can this be the Brazilian Beach Boys or Beatles? A Minha Menina - nope! The album is rich of experimentation - take O Relógio, with an intro that's practically drowning in reverb, with a quick-cut to colage of tropicalia.
+Panis Et Circenses - some boroque, some tape delays; can this be the Brazilian Beach Boys or Beatles? A Minha Menina - nope! The album is rich with experimentation - take O Relógio, with an intro that's practically drowning in reverb, with a quick-cut to colage of tropicalia.
 
 ## 2/28 Stand - Sly & The Family Stone
 * 1st Listen: Pretty good
@@ -27,12 +33,12 @@ Panis Et Circenses - some boroque, some tape delays; can this be the Brazilian B
 ## 2/26 Andy Warhole - The Velvet Underground
 * 1st Listen: Ok/ pretty good
 
-Better than Pet Sounds? I. Don't. Think. So!
+Better than Pet Sounds? I. Don't. Think. So.
 
 ## 2/25 After The Gold Rush - Neil Young
 * ~5th Listen: Very good
 
-The songs stand for themselves - keeping the number of instruments to a minimum, Neil Young puts a lot of this album's weight on its melodies. He fully succeeds.
+The songs stand for themselves - keeping instrumentation to a minimum, Neil Young puts a lot of this album's weight on its melodies. He fully succeeds.
 
 ## 2/24 Helplessness Blues - Fleet Foxes
 * nth Listen: Pretty/ very good
