@@ -51,6 +51,7 @@
 13. [Never Mind The Bollocks - Sex Pistols (Ok/PG)](#125-never-mind-the-bollocks---sex-pistols)
 13. [Blue - Joni Mitchell (Ok/PG)](#217-blue---joni-mitchell)
 14. [Abraxas - Santana (Ok/PG)](#123-abraxas---santana)
+14. [Smiley Smile - Beach Boys (OK/PG)](#33-smiley-smile---beach-boys)
 13. [Goo - Sonic Youth (Ok/PG)](#215-goo---sonic-youth)
 13. [Sunshine Superman - Donovan (Ok/PG)](#220-sunshine-superman---donovan)
 13. [Get Happy - Elvis Costello (Ok/PG)](#124-get-happy---elvis-costello)
