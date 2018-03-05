@@ -150,18 +150,18 @@ So many instruments going. Super upbeat. Thoroughly enjoyable blues. With that s
 Forget what I said, there is certainly variety on this album. It's pretty good!
 
 ## 2/1 Q: Are We Not Men? A: We Are Devo! - Devo
-1st Listen: Ok/ pretty good
-2nd Listen: Pretty good
+* 1st Listen: Ok/ pretty good
+* 2nd Listen: Pretty good
 
 ## 1/31 Computer World - Kraftwerk
 * 1st Listen: Pretty/ very good
 * 2nd Listen: Pretty/ very good
 
 ## 1/30 Call Me - Al Green
-1st Listen: Pretty/ very good
+* 1st Listen: Pretty/ very good
 
 ## 1/29 Appetite For Destruction - Guns N' Roses
-1st Listen: Ok
+* 1st Listen: Ok
 
 Slash's fantastic guitar work is present throughout the album. This along with the three solid songs on this album make it ok. Aside from that, just a ton of filler on boring subject matter.
 
@@ -169,7 +169,7 @@ Slash's fantastic guitar work is present throughout the album. This along with t
 Nth Listen: Incredible
 
 ## 1/27 Rumors - Fleetwood Mac
-1st Listen: Pretty/ very good
+* 1st Listen: Pretty/ very good
 
 ## 1/26 Born To Run - Bruce Springsteen
 * 1st Listen: Pretty/ very good
@@ -196,7 +196,7 @@ The opening track has Elvis Costello at his worst. What really pulled me in was 
 The landscapes he paints with his music is extraordinary. The percusion is a highlight.
 
 ## 1/21 Illinois - Sufjan Stevens
-Nth Listen: Very good
+* Nth Listen: Very good
 
 ## 1/20 The Queen Is Dead - The Smiths
 * 1st Listen: Ok
