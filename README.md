@@ -13,11 +13,14 @@
 
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
-## 3/5 Aftermath - The Rolling Stones
+## 3/6 The Black Saint And The Sinner Lady - Charles Mingus
 * 1st Listen:
 
+## 3/5 Aftermath - The Rolling Stones
+* 1st Listen: Ok/ pretty good
+
 ## 3/3 Smiley Smile - Beach Boys
-* 1st Listen: OK/ pretty good
+* 1st/ 2nd Listen: OK/ pretty good
 
 *Good Vibrations* is amazing, but the rest of the album leaves a lot to be desired after Pet Sounds. Some tracks are needlessly obscure (She's Goin Bald), others range between ok and pretty good. *Ok/ pretty good*.
 
