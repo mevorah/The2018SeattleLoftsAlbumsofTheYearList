@@ -1,5 +1,3 @@
-This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
-
 **Listening**
 1. Priming pass - listen in the morning
 2. Second pass - form an opinion.. at night
@@ -13,13 +11,15 @@ This is a project aimed at filling my musical blindspots, favoring albums I have
 5. Not Great
 6. Awful / The Worst
 
+This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
+
 ## 3/5 Aftermath - The Rolling Stones
 * 1st Listen:
 
 ## 3/3 Smiley Smile - Beach Boys
 * 1st Listen: OK/ pretty good
 
-*Good Vibrations* is anazing, but the rest of the album leaves a lot to be desired after Pet Sounds. Some tracks are needlessly obscure (She's Goin Bald), others range between ok and pretty good. *Ok/ pretty good*.
+*Good Vibrations* is amazing, but the rest of the album leaves a lot to be desired after Pet Sounds. Some tracks are needlessly obscure (She's Goin Bald), others range between ok and pretty good. *Ok/ pretty good*.
 
 ## 3/2/3 Last Splash - The Breeders
 * 1st/2nd Listen: Pretty good
