@@ -41,6 +41,7 @@
 12. [Getz/ Gilberto - Stan Getz (PG)](#221-getz-gilberto---stan-getz)
 12. [Elvis Presley - Elvis Presley (PG)](#223-elvis-presley---elvis-presley)
 13. [Q: Are We Not Men? A: We Are Devo! - Devo (PG)](#21-q-are-we-not-men-a-we-are-devo---devo)
+17. [13 Songs - Fugazi (PG)](#16-13-songs---fugazi)
 9. [Cosmo's Factory - Creedence Clearwater Revival (PG)](#28-cosmos-factory---creedence-clearwater-revival)
 11. [Graceland - Paul Simon (PG)](#110-graceland---paul-simon)
 6. [Scary Monsters - David Bowie (PG)](#19-scary-monsters--david-bowie)
@@ -61,7 +62,6 @@
 12. [Appetite For Destruction - Guns N' Roses (Ok)](#129-appetite-for-destruction---guns-n-roses)
 15. [New Day Rising - Hüsker Du (Ok)](#16-new-day-rising---hüsker-du)
 16. [Zen Arcade - Hüsker Du (Ok)](#15-zen-arcade---hüsker-du)
-17. [13 Songs - Fugazi (Ok)](#16-13-songs---fugazi)
 17. [Rio - Duran Duran (NG)](#213-rio---duran-duran)
 18. [Everything Falls Apart - Hüsker Du (NG)](#14-everything-falls-apart---hüsker-du)
 <br/>
