@@ -46,7 +46,7 @@
 6. [Scary Monsters - David Bowie (PG)](#19-scary-monsters--david-bowie)
 12. [Sign 'O' The Times - Prince (PG)](#214-sign-o-the-times---prince)
 12. [Back To Black - Amy Winehouse (PG)](#218-back-to-black---amy-winehouse)
-12. [The Black Saint And The Sinner Lady (PG)](#36-the-black-saint-and-the-sinner-lady---charles-mingus)
+12. [The Black Saint And The Sinner Lady - Charles Mingus (PG)](#36-the-black-saint-and-the-sinner-lady---charles-mingus)
 12. [Andy Warhole - The Velvet Underground (Ok/PG)](#226-andy-warhole---the-velvet-underground)
 12. [Trompe Le Monde - Pixes (OK/PG)](#32-trompe-le-monde---pixes)
 13. [Never Mind The Bollocks - Sex Pistols (Ok/PG)](#125-never-mind-the-bollocks---sex-pistols)
