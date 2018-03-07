@@ -13,8 +13,13 @@
 
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
-## 3/6 The Black Saint And The Sinner Lady - Charles Mingus
+## 3/7 Slanted And Enchanted - Pavement
 * 1st Listen:
+
+## 3/6 The Black Saint And The Sinner Lady - Charles Mingus
+* 1st Listen: Pretty good
+
+More tolerable than free form jazz - Mingus actually has a composition he's working with. Employing a variety of musicians, he leads the group to create some emotional music.
 
 ## 3/5 Aftermath - The Rolling Stones
 * 1st Listen: Ok/ pretty good
