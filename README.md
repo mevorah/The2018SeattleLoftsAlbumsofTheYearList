@@ -21,7 +21,7 @@ This is a project aimed at filling my musical blindspots, favoring albums I have
 
 More tolerable than free form jazz - Mingus actually has a composition he's working with. Employing a variety of musicians, he leads the group to create some emotional music.
 
-## 3/5 Aftermath - The Rolling Stones
+## 3/5 Aftermath - Rolling Stones
 * 1st Listen: Ok/ pretty good
 
 ## 3/3 Smiley Smile - Beach Boys
@@ -271,16 +271,19 @@ Nth Listen: Amazing
 1st Listen: Ok
 
 ## 1/6 13 Songs - Fugazi
-1st Listen: Ok
+* 1st Listen: Ok
+* 2nd Listen: Unknown
+* 3rd Listen: Pretty good
 
 ## 1/5 Zen Arcade - Hüsker Du
-1st Listen: Ok
+* 1st Listen: Ok
 
 ## 1/4 Everything Falls Apart - Hüsker Du
-1st Listen: Not great
+* 1st Listen: Not great
 
 ## 1/3 Good Bad Not Evil - The Black Lips
-1st Listen: Pretty good
+* 1st Listen: Pretty good
+* 2nd Listen: Pretty good
 
 ## 1/1 Low - David Bowie
  * 1st Listen: Very good
