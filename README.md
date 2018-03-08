@@ -13,8 +13,13 @@
 
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
-## 3/7 Slanted And Enchanted - Pavement
+## 3/8 Gilberto Gil - Gilberto Gil
 * 1st Listen:
+
+Should I ever be stranded in dire circumstances, I only hope I have this album - happy, experimental music that makes you feel as though you're treking the Amazon rainforest. Cheers Gilberto, cheers.
+
+## 3/7 Slanted And Enchanted - Pavement
+* 1st Listen: Pretty good
 
 ## 3/6 The Black Saint And The Sinner Lady - Charles Mingus
 * 1st Listen: Pretty good
