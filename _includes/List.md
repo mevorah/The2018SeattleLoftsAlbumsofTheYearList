@@ -16,6 +16,7 @@
 13. [Murmur - R.E.M (VG)](#117-murmur---rem)
 4. [Daydream Nation - Sonic Youth (PG/VG)](#118-daydream-nation---sonic-youth)
 4. [Blonde On Blonde - Bob Dylan (PG/VG)](#223-blonde-on-blonde---bob-dylan)
+7. [Slanted And Enchanted - Pavement (PG/VG)](#37-slanted-and-enchanted---pavement)p
 4. [Helplessness Blues - Fleet Foxes (PG/VG)](#224-helplessness-blues---fleet-foxes)
 7. [Paul Simon - Paul Simon (PG/VG)](#26-paul-simon---paul-simon)
 10. [Let It Be - The Replacements (PG/VG)](#119-let-it-be---the-replacements)
@@ -29,7 +30,6 @@
 7. [Paul's Boutique - Beastie Boys (PG)](#18-pauls-boutique---beastie-boys)
 7. [Remain in light - Talking Heads (PG/VG)](#115-remain-in-light---talking-heads)
 7. [Purple Rain - Prince (PG)](#116-purple-rain---prince)
-7. [Slanted And Enchanted - Pavement (PG)](#37-slanted-and-enchanted---pavement)
 9. [Nebraska - Bruce Springsteen (PG/VG)](#111-nebraska---bruce-springsteen)
 9. [Reckoning - R.E.M (PG)](#216-reckoning---rem)
 13. [Exile On Main Street - Rolling Stones (PG)](#22-exile-on-main-street---rolling-stones)
@@ -39,6 +39,7 @@
 12. [Good Bad Not Evil - The Black Lips (PG)](#13-good-bad-not-evil---the-black-lips)
 12. [Os Mutantes - Os Mutantes (PG)](#31-os-mutantes---os-mutantes)
 12. [Getz/ Gilberto - Stan Getz (PG)](#221-getz-gilberto---stan-getz)
+12. [Gilberto Gil - Gilberto Gil (PG)](#38-gilberto-gil---gilberto-gil)
 12. [Elvis Presley - Elvis Presley (PG)](#223-elvis-presley---elvis-presley)
 13. [Q: Are We Not Men? A: We Are Devo! - Devo (PG)](#21-q-are-we-not-men-a-we-are-devo---devo)
 17. [13 Songs - Fugazi (PG)](#16-13-songs---fugazi)
