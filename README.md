@@ -14,7 +14,7 @@
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
 ## 3/9 Otis Blue Otis Redding Sings Soul - Otis Redding
-* 1st Listen:
+* 1st Listen: Pretty/ very good
 
 ## 3/8 Gilberto Gil - Gilberto Gil
 * 1st Listen: Pretty good
@@ -222,6 +222,7 @@ The landscapes he paints with his music is extraordinary. The percusion is a hig
 ## 1/19 Let It Be - The Replacements
 * 1st Listen: Pretty good
 * 2nd Listen: Pretty/ very good
+* 3rd Listen: Pretty/ very good
 
 ## 1/18 Daydream Nation - Sonic Youth
 * 1st Listen: Pretty good
@@ -241,7 +242,8 @@ There is no doubt that this is a great album with excellent song writing.. but g
 
 ## 1/15 Remain In Light - Talking Heads
 * 1st Listen: Ok
-* 2nd Listen: Pretty/Very good
+* 2nd Listen: Pretty/ very good
+* 3rd Listen: Pretty/ very good
 
 The sounds of the 80s?
 
