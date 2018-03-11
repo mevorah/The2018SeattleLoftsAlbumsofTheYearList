@@ -13,6 +13,14 @@
 
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
+## 3/11 Light Upon The Lake - Whitney
+* Nth Listen: Amazing
+
+It's amazing that after nearly two years of regular listening, I haven't gotten sick of this album. Perhaps the best summer album ever put to recording medium.
+
+## 3/10 Amnesiac - Radiohead
+* 1st Listen:
+
 ## 3/9 Otis Blue Otis Redding Sings Soul - Otis Redding
 * 1st Listen: Pretty/ very good
 
