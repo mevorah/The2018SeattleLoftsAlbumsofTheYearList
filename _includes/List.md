@@ -32,6 +32,7 @@
 13. [Station To Station - David Bowie (PG/VG)](#27-station-to-station---david-bowie)
 7. [Paul's Boutique - Beastie Boys (PG)](#18-pauls-boutique---beastie-boys)
 7. [Purple Rain - Prince (PG)](#116-purple-rain---prince)
+7. [The Freewheelin' Bob Dylan - Bob Dylan (PG)](#312-the-freewheelin-bob-dylan---bob-dylan)
 9. [Nebraska - Bruce Springsteen (PG/VG)](#111-nebraska---bruce-springsteen)
 9. [Reckoning - R.E.M (PG)](#216-reckoning---rem)
 13. [Exile On Main Street - Rolling Stones (PG)](#22-exile-on-main-street---rolling-stones)
