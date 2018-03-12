@@ -13,6 +13,9 @@
 
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
+## 3/12 The Freewheelin' Bob Dylan - Bob Dylan
+* 1st Listen:
+
 ## 3/11 Light Upon The Lake - Whitney
 * Nth Listen: Amazing
 
