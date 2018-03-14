@@ -21,6 +21,8 @@ Wow.
 ## 3/13 Thriller - Michael Jackson
 * 1st Listen: Pretty/ very good
 
+Sooo many hits.
+
 ## 3/12 The Freewheelin' Bob Dylan - Bob Dylan
 * 1st Listen: Pretty good
 
