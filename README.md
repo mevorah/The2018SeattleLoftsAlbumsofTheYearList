@@ -66,6 +66,7 @@ This album is thoroughly enjoyable all the way through. It's clear to see Kim De
 
 ## 3/2 Trompe Le Monde - Pixes
 * 1st Listen: Ok/ pretty good
+* 2nd Listen: Pretty good
 
 ## 3/1 Os Mutantes - Os Mutantes
 * 1st Listen: Pretty good
