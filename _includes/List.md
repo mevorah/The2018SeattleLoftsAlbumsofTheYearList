@@ -23,6 +23,7 @@
 7. [Paul Simon - Paul Simon (PG/VG)](#26-paul-simon---paul-simon)
 10. [Let It Be - The Replacements (PG/VG)](#119-let-it-be---the-replacements)
 10. [Rumors - Fleetwood Mac (PG/VG)](#127-rumors---fleetwood-mac)
+10. [Thriller - Michael Jackson (PG/VG)](#313-thriller---michael-jackson)
 10. [Call Me - Al Green (PG/VG)](#130-call-me---al-green)
 10. [Another Green World - Brian Eno (PG/VG)](#29-another-green-world---brian-eno)
 10. [I Never Loved A Man The Way I Love You - Athretha Franklin (PG/VG)](#227-i-never-loved-a-man-the-way-i-love-you---athetha-franklin)
