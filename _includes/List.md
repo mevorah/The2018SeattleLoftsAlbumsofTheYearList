@@ -23,6 +23,7 @@
 4. [Helplessness Blues - Fleet Foxes (PG/VG)](#224-helplessness-blues---fleet-foxes)
 7. [Paul Simon - Paul Simon (PG/VG)](#26-paul-simon---paul-simon)
 10. [Let It Be - The Replacements (PG/VG)](#119-let-it-be---the-replacements)
+11. [Amnesiac - Radiohead (PG/VG)](#310-amnesiac---radiohead)
 10. [Rumors - Fleetwood Mac (PG/VG)](#127-rumors---fleetwood-mac)
 10. [Thriller - Michael Jackson (PG/VG)](#313-thriller---michael-jackson)
 10. [Call Me - Al Green (PG/VG)](#130-call-me---al-green)
