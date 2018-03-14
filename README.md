@@ -32,7 +32,7 @@ Sooo many hits.
 It's amazing that after nearly two years of regular listening, I haven't gotten sick of this album. Perhaps the best summer album ever put to recording medium.
 
 ## 3/10 Amnesiac - Radiohead
-* 1st Listen:
+* 1st Listen: Pretty/ very good
 
 ## 3/9 Otis Blue Otis Redding Sings Soul - Otis Redding
 * 1st Listen: Pretty/ very good
