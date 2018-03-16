@@ -53,6 +53,7 @@ Should I ever be stranded in dire circumstances, I only hope I have this album -
 
 ## 3/6 The Black Saint And The Sinner Lady - Charles Mingus
 * 1st Listen: Pretty good
+* 2nd Listen: Pretty good
 
 More tolerable than free form jazz - Mingus actually has a composition he's working with. Employing a variety of musicians, he leads the group to create some emotional music.
 
