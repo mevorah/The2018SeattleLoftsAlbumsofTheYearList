@@ -14,9 +14,9 @@
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
 ## 3/15 Electric Warrior - T. Rex
-* 1st Listen: Pretty/ very good
+* 1st Listen: Pretty good
 
-So hard to tell who influenced them and who they influenced - the opening track sounds like the Black Keys. The follow ups sound like they ripped off Bowie and the Beatles. T.Rex, man.. pretty.. very.. good.
+So hard to tell who influenced them and who they influenced - the opening track sounds like the Black Keys. The follow ups sound like they ripped off Bowie and the Beatles. T.Rex, man.. pretty.. good.
 
 ## 3/14 Painful - Yo La Tengo
 * 1st Listen: Pretty/ very good
