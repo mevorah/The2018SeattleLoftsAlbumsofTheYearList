@@ -157,8 +157,9 @@ But honestly, how do you rate such an album. It's clear that this album is great
 
 ## 2/10 Odelay - Beck
 * Nth Listen: Very good/ Amazing
+* Reevaluation: Very good
 
-I love this album.
+I love this album. Perhaps the perfect backdrop for a summer house party.
 
 ## 2/9 Another Green World - Brian Eno
 * 1st Listen: Pretty/ Very good
