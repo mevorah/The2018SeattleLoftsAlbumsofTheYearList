@@ -2,9 +2,9 @@
 **[SeattleLofts](/)**
 1. [The Moon & Antarctica - Modest Mouse (I)](#128-the-moon--antarctica---modest-mouse)
 1. [Aeroplane Over the Sea - Neutral Milk Hotel (I)](#17-in-the-aeroplane-over-the-sea---neutral-milk-hotel)
-1. [Odelay - Beck (VG/A)](#210-odelay---beck)
 1. [Kid A - Radiohead (VG/I)](#219-kid-a---radiohead)
 2. [Low - David Bowie (VG/I)](#11-low---david-bowie)
+1. [Odelay - Beck (VG)](#210-odelay---beck)
 1. [Illinois - Sufjan Stevens (VG)](#121-illinois---sufjan-stevens)
 1. [Light Upon The Lake - Whitney (VG)](#311-light-upon-the-lake---whitney)
 1. [Revolver - The Beatles (VG)](#114-revolver---the-beatles)
