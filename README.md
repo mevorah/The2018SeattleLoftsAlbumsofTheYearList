@@ -13,6 +13,11 @@
 
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
+## 3/16 Richard D. James Album - Aphex Twin
+* 4th or 5th Listen: 
+
+I can't help but think that I found this album pretty inacessible on the first listen. After three or four more over the course of the last few years, I think I'm sold. *4* opens the album and goddamn what an opener - the drum machine, the melody that feels like an electric eel working its way through a computer. The sounds and textures feel tangible. Finally the emotion that is wrung out the circuits that made this album (especially on *Girl/Boy*) - palpable. Bravo Richard D. James, bravo.
+
 ## 3/15 Electric Warrior - T. Rex
 * 1st Listen: Pretty good
 
