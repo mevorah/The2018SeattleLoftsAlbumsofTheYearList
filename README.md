@@ -334,5 +334,9 @@ Nth Listen: Amazing
 ## 1/1 Low - David Bowie
  * 1st Listen: Very good
  * 2nd Listen: Very good/ Amazing
+ * 3rd Listen (3/16): Very good/ Incredible
 
 Only one single if any - Sound and Vision. Otherwise the album lives only as a whole - tracking Bowies progression from addiction to the next phase in his career.
+
+Upon 3rd listen, this album holds it's rank. Just an incredible amount of ideas and innovation on this album - forseeing the next three decades of music.
+
