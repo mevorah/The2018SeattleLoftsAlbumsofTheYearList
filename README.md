@@ -70,7 +70,7 @@ More tolerable than free form jazz - Mingus actually has a composition he's work
 
 This album is thoroughly enjoyable all the way through. It's clear to see Kim Deal's influence on the Pixes.
 
-## 3/2 Trompe Le Monde - Pixes
+## 3/2 Trompe Le Monde - Pixies
 * 1st Listen: Ok/ pretty good
 * 2nd Listen: Pretty good
 
