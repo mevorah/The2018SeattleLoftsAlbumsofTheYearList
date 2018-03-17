@@ -345,5 +345,5 @@ Nth Listen: Amazing
 
 Only one single if any - Sound and Vision. Otherwise the album lives only as a whole - tracking Bowies progression from addiction to the next phase in his career.
 
-Upon 3rd listen, this album holds it's rank. Just an incredible amount of ideas and innovation on this album - forseeing the next three decades of music.
+Upon 3rd listen, this album holds it's rank - Just an incredible amount of ideas and innovation, forseeing the next three decades of music.
 
