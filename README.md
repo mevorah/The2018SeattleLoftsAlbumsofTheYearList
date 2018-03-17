@@ -13,6 +13,12 @@
 
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
+## 3/17 Dusk At Cubist Castle - The Olivia Tremor Control
+* 1st Listen: Pretty.. very? good
+
+A lot going on on this album. I need another listen, or five.
+
+
 ## 3/16 Richard D. James Album - Aphex Twin
 * 4th or 5th Listen: Pretty good
 
