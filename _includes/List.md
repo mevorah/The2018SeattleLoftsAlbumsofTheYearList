@@ -50,6 +50,7 @@
 12. [Gilberto Gil - Gilberto Gil (PG)](#38-gilberto-gil---gilberto-gil)
 12. [Elvis Presley - Elvis Presley (PG)](#223-elvis-presley---elvis-presley)
 17. [13 Songs - Fugazi (PG)](#16-13-songs---fugazi)
+17. [Richard D. James Album - Aphex Twin (PG)](#316-richard-d-james-album---aphex-twin)
 12. [Sign 'O' The Times - Prince (PG)](#214-sign-o-the-times---prince)
 6. [Scary Monsters - David Bowie (PG)](#19-scary-monsters--david-bowie)
 11. [Graceland - Paul Simon (PG)](#110-graceland---paul-simon)
