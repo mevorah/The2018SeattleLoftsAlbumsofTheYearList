@@ -23,9 +23,7 @@ This album is the concentrate of Modest Mouse.
 
 ## 3/17 Dusk At Cubist Castle - The Olivia Tremor Control
 * 1st Listen: Pretty.. very? good
-
-A lot going on on this album. I need another listen, or five.
-
+* 2nd Listen: Very good
 
 ## 3/16 Richard D. James Album - Aphex Twin
 * 4th or 5th Listen: Pretty good
