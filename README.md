@@ -96,6 +96,9 @@ This album is thoroughly enjoyable all the way through. It's clear to see Kim De
 ## 3/2 Trompe Le Monde - Pixies
 * 1st Listen: Ok/ pretty good
 * 2nd Listen: Pretty good
+* 3rd Listen: Pretty/ very good
+
+On 3rd listen, this album is great. Albeit not as varied as Doolitle, this album has direction.
 
 ## 3/1 Os Mutantes - Os Mutantes
 * 1st Listen: Pretty good
