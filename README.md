@@ -356,3 +356,5 @@ Only one single if any - Sound and Vision. Otherwise the album lives only as a w
 
 Upon 3rd listen, this album holds it's rank - Just an incredible amount of ideas and innovation, forseeing the next three decades of music.
 
+<i><a text-align="right" href="#">Go to top</a></i>
+
