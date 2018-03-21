@@ -13,8 +13,11 @@
 
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
+## 3/20 Young Team - Mogwai
+* 1st Listen: Ok
+
 ## 3/19 The Soft Bulletin - The Flaming Lips
-* 1st Listen:
+* 1st Listen: Pretty/ very good
 
 ## 3/18 The Lonesome Crowded West - Modest Mouse
 * 1st Listen: Pretty/ very good
