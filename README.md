@@ -82,6 +82,7 @@ More tolerable than free form jazz - Mingus actually has a composition he's work
 
 ## 3/5 Aftermath - Rolling Stones
 * 1st Listen: Ok/ pretty good
+* 2nd Listen: Pretty good (maybe very good)
 
 ## 3/3 Smiley Smile - Beach Boys
 * 1st/ 2nd Listen: OK/ pretty good
@@ -90,6 +91,7 @@ More tolerable than free form jazz - Mingus actually has a composition he's work
 
 ## 3/2/3 Last Splash - The Breeders
 * 1st/2nd Listen: Pretty good
+* 3rd Listen: Pretty/ very good
 
 This album is thoroughly enjoyable all the way through. It's clear to see Kim Deal's influence on the Pixes.
 
