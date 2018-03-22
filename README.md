@@ -13,6 +13,9 @@
 
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
+## 3/22 Tago Mago - Can
+* 1st Listen:
+
 ## 3/21 The Specials - The Specials
 * 1st Listen: Pretty good
 
@@ -30,6 +33,8 @@ This album is the concentrate of Modest Mouse.
 ## 3/17 Dusk At Cubist Castle - The Olivia Tremor Control
 * 1st Listen: Pretty.. very? good
 * 2nd Listen: Very good
+
+Definitively, very good. Pop that doesn't emulate, but builds on those that came before. It feels as though The Beatles' experimentation had been boiled down into ideas that work and those that don't - the ideas that work soley realized through this album. Everything from *Jumping Fences* to the 10x *Green Typewriters* - "How much longer.. can I wait?", in 1996 we had  arrived.
 
 ## 3/16 Richard D. James Album - Aphex Twin
 * 4th or 5th Listen: Pretty good
