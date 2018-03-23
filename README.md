@@ -14,7 +14,7 @@
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
 ## 3/22 Tago Mago - Can
-* 1st Listen:
+* 1st Listen: Ok
 
 ## 3/21 The Specials - The Specials
 * 1st Listen: Pretty good
