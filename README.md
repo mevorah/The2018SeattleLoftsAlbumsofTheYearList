@@ -231,6 +231,7 @@ Forget what I said, there is certainly variety on this album. It's pretty good!
 ## 2/1 Q: Are We Not Men? A: We Are Devo! - Devo
 * 1st Listen: Ok/ pretty good
 * 2nd Listen: Pretty good
+* 3rd Listen: Pretty good
 
 ## 1/31 Computer World - Kraftwerk
 * 1st Listen: Pretty/ very good
