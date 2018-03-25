@@ -76,6 +76,7 @@
 12. [The Queen Is Dead - The Smiths (Ok)](#120-the-queen-is-dead---the-smiths)
 12. [Appetite For Destruction - Guns N' Roses (Ok)](#129-appetite-for-destruction---guns-n-roses)
 12. [Bookends - Simon & Garfunkel (Ok)](#324-bookends---simon--garfunkel)
+12. [Unknown Pleasures - Joy Division (Ok)](#325-unknown-pleasures---joy-division)
 12. [Tago Mago - Can (Ok)](#322-tago-mag---can)
 15. [New Day Rising - Hüsker Du (Ok)](#16-new-day-rising---hüsker-du)
 16. [Zen Arcade - Hüsker Du (Ok)](#15-zen-arcade---hüsker-du)
