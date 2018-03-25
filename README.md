@@ -113,8 +113,9 @@ This album is thoroughly enjoyable all the way through. It's clear to see Kim De
 * 1st Listen: Ok/ pretty good
 * 2nd Listen: Pretty good
 * 3rd Listen: Pretty/ very good
+* 4th Listen: Very good
 
-On 3rd listen, this album is great. Albeit not as varied as Doolitle, this album has direction.
+This album is great. Albeit not as varied as Doolitle, this album still has direction. I find my self regulary going back to it. There's anger, layers, and hooks - I'm hooked.
 
 ## 3/1 Os Mutantes - Os Mutantes
 * 1st Listen: Pretty good
