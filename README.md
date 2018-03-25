@@ -14,7 +14,7 @@
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
 ## 3/24 Bookends - Simon & Garfunkel
-* 1st Listen:
+* 1st Listen: Ok
 
 ## 3/23 Who's Next - The Who
 * 1st Listen: Ok/ pretty good
