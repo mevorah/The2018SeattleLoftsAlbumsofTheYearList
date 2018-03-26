@@ -13,6 +13,9 @@
 
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
+## 3/26 Ladies & Gentlemen We Are Floating In Space - Spiritualized
+* 1st Listen: Pretty good
+
 ## 3/25 Unknown Pleasures - Joy Division
 * 1st Listen: Ok
 
