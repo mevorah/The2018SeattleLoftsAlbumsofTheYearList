@@ -196,6 +196,9 @@ Hearing rock influences is so common, but this is the first where I heard electr
 
 ## 2/15 Goo - Sonic Youth
 * 1st Listen: Ok/ pretty good
+* 2nd Listen: Ok/ pretty good
+
+This album is crazy hit or miss.
 
 ## 2/14 Sign 'O' The Times - Prince
 * 1st Listen: Pretty good
