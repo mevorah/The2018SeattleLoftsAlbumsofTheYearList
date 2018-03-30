@@ -13,8 +13,11 @@
 
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
+## 3/30 Modern Lovers - Modern Lovers
+* 1st Listen: Pretty good
+
 ## 3/29 Trans Europe Express - Kraftwerk
-* 1st Listen:
+* 1st Listen: Ok
 
 ## 3/28 Red Medicine - Fugazi
 * 1st Listen: Ok
@@ -25,8 +28,7 @@ This is a project aimed at filling my musical blindspots, favoring albums I have
 ## 3/26 Ladies & Gentlemen We Are Floating In Space - Spiritualized
 * 1st Listen: Pretty good
 
-The commonalities between this and the Gorillaz is unmistakable. Comon' Damon!
-
+The commonalities between this and the Gorillaz is unmistakable. Com'on Damon!
 
 ## 3/25 Unknown Pleasures - Joy Division
 * 1st Listen: Ok
