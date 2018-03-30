@@ -123,6 +123,7 @@ More tolerable than free form jazz - Mingus actually has a composition he's work
 ## 3/2/3 Last Splash - The Breeders
 * 1st/2nd Listen: Pretty good
 * 3rd Listen: Pretty/ very good
+* 4/5th Listen: Very good
 
 This album is thoroughly enjoyable all the way through. It's clear to see Kim Deal's influence on the Pixes.
 
@@ -239,7 +240,7 @@ Fantastic songs, Paul Simon's voice is incredible - surely an influence on Ellio
 So many influences and deadpan lyrics, and so much musical variety - this album may have it all. Phenomenal.
 
 ## 2/4 High Violet - The National
-Nth Listen: Very good
+* **Nth Listen: Very good**
 
 ## 2/3 Post - Bjork
 * 1st Listen: Ok/ Pretty good
@@ -254,6 +255,8 @@ So many instruments going. Super upbeat. Thoroughly enjoyable blues. With that s
 * 3rd Listen: Pretty good
 
 Forget what I said, there is certainly variety on this album. It's pretty good!
+
+* 4th/ 5th Listen: Very good
 
 ## 2/1 Q: Are We Not Men? A: We Are Devo! - Devo
 * 1st Listen: Ok/ pretty good
