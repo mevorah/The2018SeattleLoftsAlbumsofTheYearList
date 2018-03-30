@@ -59,8 +59,9 @@ This album is the concentrate of Modest Mouse.
 ## 3/17 Dusk At Cubist Castle - The Olivia Tremor Control
 * 1st Listen: Pretty.. very? good
 * 2nd Listen: Very good
+* 3rd Listen: Very good
 
-Definitively, very good. Pop that doesn't emulate, but builds on those that came before. It feels as though The Beatles' experimentation had been boiled down into ideas that work and those that don't - the ideas that work soley realized through this album. Everything from *Jumping Fences* to the 10x *Green Typewriters* - "How much longer.. can I wait?", in 1996 we had  arrived.
+Definitively, very good. Pop that doesn't emulate, but builds on those that came before. It feels as though The Beatles' experimentation had been boiled down into ideas that worked and those that didn't - the ideas that worked soley realized through this album. Everything from *Jumping Fences* to the 10x *Green Typewriters* - "How much longer.. can I wait?", in 1996 we had  arrived.
 
 ## 3/16 Richard D. James Album - Aphex Twin
 * 4th or 5th Listen: Pretty good
