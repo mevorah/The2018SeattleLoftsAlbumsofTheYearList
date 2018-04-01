@@ -44,6 +44,7 @@
 7. [Purple Rain - Prince (PG)](#116-purple-rain---prince)
 7. [The Freewheelin' Bob Dylan - Bob Dylan (PG)](#312-the-freewheelin-bob-dylan---bob-dylan)
 9. [Nebraska - Bruce Springsteen (PG/VG)](#111-nebraska---bruce-springsteen)
+9. [Loaded - The Velvet Underground (PG)](#331-loaded---the-velvet-underground)
 9. [Reckoning - R.E.M (PG)](#216-reckoning---rem)
 13. [Post - Bjork (PG)](#23-post---bjork)
 13. [Ladies & Gentlemen We Are Floating In Space - Spiritualized (PG)](#326-ladies---gentlemen-we-are-floating-in-space---spiritualized)
