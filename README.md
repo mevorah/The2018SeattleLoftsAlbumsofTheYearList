@@ -13,6 +13,9 @@
 
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
+## 3/31 Loaded - The Velvet Underground
+* 1st Listen: Pretty good
+
 ## 3/30 Modern Lovers - Modern Lovers
 * 1st Listen: Pretty good
 
