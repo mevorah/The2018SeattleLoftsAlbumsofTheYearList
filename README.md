@@ -13,6 +13,9 @@
 
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
+## 4/1 Enter The Wu-Tang - Wu-Tang Clan
+* 1st Listen: Ok
+
 ## 3/31 Loaded - The Velvet Underground
 * 1st Listen: Pretty good
 
