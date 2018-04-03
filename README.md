@@ -13,6 +13,12 @@
 
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
+## 4/3 Illmatic - Nas
+* 1st Listen: Ok/ Pretty good
+
+## 4/2 Ready To Die - The Notorious B.I.G.
+* 1st Listen: Ok
+
 ## 4/1 Enter The Wu-Tang - Wu-Tang Clan
 * 1st Listen: Ok
 
