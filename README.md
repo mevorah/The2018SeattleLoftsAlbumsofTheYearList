@@ -84,9 +84,12 @@ The commonalities between this and the Gorillaz is unmistakable. Com'on Damon!
 
 ## 3/19 The Soft Bulletin - The Flaming Lips
 * 1st Listen: Pretty/ very good
+* 2nd Listen: Very good (needs list update)
 
 ## 3/18 The Lonesome Crowded West - Modest Mouse
 * 1st Listen: Pretty/ very good
+* 2nd Listen: Very good
+* 3rd Listen: Very good (needs list update)
 
 This album is the concentrate of Modest Mouse.
 
