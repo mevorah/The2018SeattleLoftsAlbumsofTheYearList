@@ -380,8 +380,10 @@ There is no doubt that this is a great album with excellent song writing.. but g
 * 1st Listen: Ok
 * 2nd Listen: Pretty/ very good
 * 3rd Listen: Pretty/ very good
+* 4th Listen: Very good
+* 5th Listen: Very good
 
-The sounds of the 80s?
+The sounds of the 80s? It took time, but this album is fantastic.
 
 ## 1/14 Revolver - The Beatles
 Nth Listen: Very good
