@@ -125,7 +125,7 @@ Sooo many hits.
 
 ## 3/12 The Freewheelin' Bob Dylan - Bob Dylan
 * 1st Listen: Pretty good
-* 2nd Listen: Pretty/ very good
+* 2nd Listen: Pretty/ very good ** \* **
 
 ## 3/11 Light Upon The Lake - Whitney
 * Nth Listen: Very good
