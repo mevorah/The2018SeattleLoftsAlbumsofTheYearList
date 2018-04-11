@@ -187,7 +187,7 @@ Panis Et Circenses - some boroque, some tape delays; can this be the Brazilian B
 
 ## 2/27 I Never Loved A Man The Way I Love You - Aretha Franklin
 * 1st Listen: Pretty/ very good
-* 2nd Listen: Pretty good
+* 2nd Listen: Pretty good *****
 
 ## 2/26 Andy Warhole - The Velvet Underground
 * 1st Listen: Ok/ pretty good
