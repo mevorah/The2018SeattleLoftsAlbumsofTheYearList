@@ -13,8 +13,11 @@
 
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
-## 4/10 Astral Weeks - Van Morrison
+## 4/11 American Water - Silver Jews
 * 1st Listen:
+
+## 4/10 Astral Weeks - Van Morrison
+* 1st Listen: Pretty good
 
 ## 4/9 Alien Lanes - Guided By Voices
 * 1st Listen: Ok/ pretty good
@@ -122,6 +125,7 @@ Sooo many hits.
 
 ## 3/12 The Freewheelin' Bob Dylan - Bob Dylan
 * 1st Listen: Pretty good
+* 2nd Listen: Pretty/ very good
 
 ## 3/11 Light Upon The Lake - Whitney
 * Nth Listen: Very good
