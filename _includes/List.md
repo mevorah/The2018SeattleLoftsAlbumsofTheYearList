@@ -80,6 +80,7 @@
 14. [Smiley Smile - Beach Boys (OK/PG)](#33-smiley-smile---beach-boys)
 14. [Illmatic - Nas (Ok/PG)](#43-illmatic---nas)
 14. [Ramones - Ramones (Ok/PG)](#412-ramones---ramones)
+14. [Pod - The Breeders (Ok/PG)](#414-pod---the-breeders)
 13. [Goo - Sonic Youth (Ok/PG)](#215-goo---sonic-youth)
 13. [Sunshine Superman - Donovan (Ok/PG)](#220-sunshine-superman---donovan)
 13. [Get Happy - Elvis Costello (Ok/PG)](#124-get-happy---elvis-costello)
