@@ -14,13 +14,14 @@
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
 ## 4/13 Grace - Jeff Buckley
-* 1st Listen: 
+* 1st Listen: Ok
 
 ## 4/12 Ramones - Ramones
 * 1st Listen: Ok/ pretty good
 
 ## 4/11 American Water - Silver Jews
 * 1st Listen: Pretty (very?) good
+* 2nd Listen: Pretty good
 
 ## 4/10 Astral Weeks - Van Morrison
 * 1st Listen: Pretty good
@@ -49,9 +50,11 @@ This is a project aimed at filling my musical blindspots, favoring albums I have
 
 ## 4/2 Ready To Die - The Notorious B.I.G.
 * 1st Listen: Ok
+* 2nd Listen: Ok/ pretty good
 
 ## 4/1 Enter The Wu-Tang - Wu-Tang Clan
 * 1st Listen: Ok
+* 2nd Listen: Ok/ pretty good
 
 ## 3/31 Loaded - The Velvet Underground
 * 1st Listen: Pretty good
@@ -93,12 +96,12 @@ The commonalities between this and the Gorillaz is unmistakable. Com'on Damon!
 
 ## 3/19 The Soft Bulletin - The Flaming Lips
 * 1st Listen: Pretty/ very good
-* 2nd Listen: Very good (needs list update)
+* 2nd Listen: Very good
 
 ## 3/18 The Lonesome Crowded West - Modest Mouse
 * 1st Listen: Pretty/ very good
 * 2nd Listen: Very good
-* 3rd Listen: Very good (needs list update)
+* 3rd Listen: Very good
 
 This album is the concentrate of Modest Mouse.
 
@@ -111,11 +114,13 @@ Definitively, very good. Pop that doesn't emulate, but builds on those that came
 
 ## 3/16 Richard D. James Album - Aphex Twin
 * 4th or 5th Listen: Pretty good
+* 6th Listen: Pretty good
 
 I can't help but think that I found this album pretty inacessible on the first listen. After three or four more over the course of the last few years, I think I'm sold. *4* opens the album and goddamn what an opener - the drum machine, the melody that feels like an electric eel working its way through a computer. The sounds and textures feel tangible. The emotion that is wrung out the circuits that made this album (especially on *Girl/Boy*) - palpable. Strangely, with the highlights so bright, there is a sense of filler. That is, filler that will almost certainly win me over in the years to come. Bravo Richard D. James, bravo.
 
 ## 3/15 Electric Warrior - T. Rex
 * 1st Listen: Pretty good
+* 2nd Listen: Pretty good
 
 So hard to tell who influenced them and who they influenced - the opening track sounds like the Black Keys. The follow ups sound like they ripped off Bowie and the Beatles. T.Rex, man.. pretty.. good.
 
@@ -172,6 +177,7 @@ More tolerable than free form jazz - Mingus actually has a composition he's work
 * 1st/2nd Listen: Pretty good
 * 3rd Listen: Pretty/ very good
 * 4/5th Listen: Very good
+* 6th Listen: **Very good**
 
 This album is thoroughly enjoyable all the way through. It's clear to see Kim Deal's influence on the Pixes.
 
