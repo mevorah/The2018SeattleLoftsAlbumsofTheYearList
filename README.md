@@ -28,6 +28,9 @@ This is a project aimed at filling my musical blindspots, favoring albums I have
 
 ## 4/9 Alien Lanes - Guided By Voices
 * 1st Listen: Ok/ pretty good
+* 2nd Listen: Pretty good
+
+This album is quantity and quality. When I thought I had rediscovered all of those songs I had once heard in passing as a child, I came upon this album (Motor Away).
 
 ## 4/8 Entertainment! - Gang of Four
 * 1st Listen: Ok
