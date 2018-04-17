@@ -13,8 +13,14 @@
 
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
+## 4/17 The Stranger - Billy Joel
+* 1st Listen:
+
+## 4/16 Spiderland - Slint
+* 1st Listen: Not great/ ok
+
 ## 4/15 Bee Thousand - Guided By Voices
-1st LISTEN:
+* 1st Listen: Ok
 
 ## 4/14 Pod - The Breeders
 * 1st Listen: Ok/ Pretty good
@@ -31,10 +37,14 @@ This is a project aimed at filling my musical blindspots, favoring albums I have
 
 ## 4/10 Astral Weeks - Van Morrison
 * 1st Listen: Pretty good
+* 1st Listen: Not great/ ok
+
+On second listen, I could barely get through.
 
 ## 4/9 Alien Lanes - Guided By Voices
 * 1st Listen: Ok/ pretty good
 * 2nd Listen: Pretty good
+* 3rd Listen: Pretty/ very good
 
 This album is quantity and quality. When I thought I had rediscovered all of those songs I had once heard in passing as a child, I came upon this album (Motor Away).
 
