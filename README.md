@@ -13,6 +13,9 @@
 
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
+## 4/18 Aja - Steely Dan
+* 1st Listen:
+
 ## 4/17 The Stranger - Billy Joel
 * 1st Listen: Pretty/ very good
 
