@@ -14,7 +14,9 @@
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
 ## 4/17 The Stranger - Billy Joel
-* 1st Listen:
+* 1st Listen: Pretty/ very good
+
+Like Springsteen, once you get over the cheesiness, the music is verrry good.
 
 ## 4/16 Spiderland - Slint
 * 1st Listen: Not great/ ok
