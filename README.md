@@ -14,7 +14,7 @@
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
 ## 4/19 Townes Van Zandt - Townes Van Zandt
-* 1st Listen: 
+* 1st Listen: Ok
 
 ## 4/18 Aja - Steely Dan
 * 1st Listen: Not great/ ok
@@ -26,9 +26,11 @@ Like Springsteen, once you get over the cheesiness, the music is verrry good.
 
 ## 4/16 Spiderland - Slint
 * 1st Listen: Not great/ ok
+* 2st Listen: Ok
 
 ## 4/15 Bee Thousand - Guided By Voices
 * 1st Listen: Ok
+* 2st Listen: Ok/ Pretty good
 
 ## 4/14 Pod - The Breeders
 * 1st Listen: Ok/ Pretty good
