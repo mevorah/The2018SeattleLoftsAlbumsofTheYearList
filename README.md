@@ -42,6 +42,7 @@ Like Springsteen, once you get over the cheesiness, the music is verrry good.
 ## 4/11 American Water - Silver Jews
 * 1st Listen: Pretty (very?) good
 * 2nd Listen: Pretty good
+* 3rd Listen: Pretty good
 
 ## 4/10 Astral Weeks - Van Morrison
 * 1st Listen: Pretty good
