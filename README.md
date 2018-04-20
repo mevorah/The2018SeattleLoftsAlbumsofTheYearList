@@ -459,6 +459,7 @@ Production has aged very well.
 ## 1/11 Nebraska - Bruce Springsteen
 * 1st Listen: Pretty good
 * 2nd Listen: Pretty/ very good
+* Re considered: Pretty good
 
 ## 1/10 Graceland - Paul Simon
 1st Listen: Pretty good
