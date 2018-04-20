@@ -14,7 +14,7 @@
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
 ## 4/20 Damn The Torpedoes - Tom Petty And The Heartbreakers
-* 1st Listen:
+* 1st Listen: Ok
 
 ## 4/19 Townes Van Zandt - Townes Van Zandt
 * 1st Listen: Ok
@@ -37,6 +37,8 @@ Like Springsteen, once you get over the cheesiness, the music is verrry good.
 
 ## 4/14 Pod - The Breeders
 * 1st Listen: Ok/ Pretty good
+* 2nd Listen: Pretty good
+* 3rd Listen: Pretty good
 
 ## 4/13 Grace - Jeff Buckley
 * 1st Listen: Ok
