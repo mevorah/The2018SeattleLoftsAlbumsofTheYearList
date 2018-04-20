@@ -40,6 +40,9 @@ Like Springsteen, once you get over the cheesiness, the music is verrry good.
 
 ## 4/13 Grace - Jeff Buckley
 * 1st Listen: Ok
+* 2nd Listen: Ok
+
+The guy's singing is unbelievable! With that said, there were few songs that actually hooked me.
 
 ## 4/12 Ramones - Ramones
 * 1st Listen: Ok/ pretty good
