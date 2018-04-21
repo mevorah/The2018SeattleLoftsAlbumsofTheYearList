@@ -13,6 +13,11 @@
 
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
+## 4/21 Summerteeth - Wilco
+* 1st Listen:
+
+First listen in a couple of years.
+
 ## 4/20 Damn The Torpedoes - Tom Petty And The Heartbreakers
 * 1st Listen: Ok
 
@@ -53,6 +58,9 @@ The guy's singing is unbelievable! With that said, there were few songs that act
 * 1st Listen: Pretty (very?) good
 * 2nd Listen: Pretty good
 * 3rd Listen: Pretty good
+* 4th Listen: Pretty/ very good
+
+How this album has grown on me! By the 4th listen it's all I could think about. The harmonies are a highlight.
 
 ## 4/10 Astral Weeks - Van Morrison
 * 1st Listen: Pretty good
