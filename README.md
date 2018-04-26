@@ -13,8 +13,11 @@
 
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
-## 4/25 Power, Corruption & Lies - New Order
+## 4/26 Stardust - Willie Nelson
 * 1st Listen:
+
+## 4/25 Power, Corruption & Lies - New Order
+* 1st Listen: Ok
 
 ## 4/24 Exile In Guyville - Liz Phair
 * 1st Listen: Not great
@@ -35,6 +38,9 @@ First listen in a couple of years.
 
 ## 4/19 Townes Van Zandt - Townes Van Zandt
 * 1st Listen: Ok
+* 2nd Listen: Ok/ pretty good
+
+The album is really in its lyrics. Thoroughly enjoyable songs, albeit few memorable.
 
 ## 4/18 Aja - Steely Dan
 * 1st Listen: Not great/ ok
