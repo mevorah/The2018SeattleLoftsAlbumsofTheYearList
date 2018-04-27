@@ -13,8 +13,11 @@
 
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
-## 4/26 Stardust - Willie Nelson
+## 4/27 Like A Virgin - Madonna
 * 1st Listen:
+
+## 4/26 Stardust - Willie Nelson
+* 1st Listen: Ok
 
 ## 4/25 Power, Corruption & Lies - New Order
 * 1st Listen: Ok
@@ -82,16 +85,18 @@ How this album has grown on me! By the 4th listen it's all I could think about. 
 
 ## 4/10 Astral Weeks - Van Morrison
 * 1st Listen: Pretty good
-* 1st Listen: Not great/ ok
+* 2nd Listen: Not great/ ok
+* 3rd Listen: Not great
 
-On second listen, I could barely get through.
+On second listen, I could barely get through. The songs all sound the same in. When you space back in, you realize that Van Morrison has been screaming in your ear for the past twenty minutes. My response: Van Morrison suuuucks.
 
 ## 4/9 Alien Lanes - Guided By Voices
 * 1st Listen: Ok/ pretty good
 * 2nd Listen: Pretty good
 * 3rd Listen: Pretty/ very good
+* 4th Listen: Very good
 
-This album is quantity and quality. When I thought I had rediscovered all of those songs I had once heard in passing as a child, I came upon this album (Motor Away).
+This album is quantity and quality. When I thought I had rediscovered all of those songs I had once heard in passing as a child, I came upon this album (Motor Away). The flawless first half makes up for the more challenging second. Very good.
 
 ## 4/8 Entertainment! - Gang of Four
 * 1st Listen: Ok
