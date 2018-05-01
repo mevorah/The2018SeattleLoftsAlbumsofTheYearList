@@ -13,8 +13,11 @@
 
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
+## 5/1 Goat - The Jesus Lizard
+* 1st Listen:
+
 ## 4/30 The Clash - The Clash
-* 1st Listen: 
+* 1st Listen: Ok
 
 On first listen, The Clash appear my rhythmically vaired than The Ramones, and more accessible than the Sex Pistols.
 
