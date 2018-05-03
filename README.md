@@ -13,8 +13,14 @@
 
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
+## 5/3 Screamadelica - Primal Scream
+* 1st Listen: 
+
+## 5/2 Perfect From Now On - Built To Spill
+* 1st Listen: Pretty good
+
 ## 5/1 Goat - The Jesus Lizard
-* 1st Listen:
+* 1st Listen: Ok
 
 ## 4/30 The Clash - The Clash
 * 1st Listen: Ok
