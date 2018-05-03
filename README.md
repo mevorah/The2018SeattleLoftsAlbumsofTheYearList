@@ -50,6 +50,9 @@ On first listen, The Clash appear my rhythmically vaired than The Ramones, and m
 
 ## 4/22 Modern Vampires of the City - Vampire Weekend
 * 1st Listen: Pretty good
+* 2nd Listen: Pretty good
+
+What is it about this album that makes it seem Koanig's voice is completely separated from the music. The album is pretty good despite this. None the less, I wonder if this is what's meant when people say they could "hear the pro tools"?
 
 ## 4/21 Summerteeth - Wilco
 * 1st Listen: Pretty/ very good
