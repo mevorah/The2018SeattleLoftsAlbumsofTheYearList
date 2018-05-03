@@ -103,6 +103,7 @@ The guy's singing is unbelievable! With that said, there were few songs that act
 * 2nd Listen: Pretty good
 * 3rd Listen: Pretty good
 * 4th Listen: Pretty/ very good
+* 5th Listen: Pretty/ very good
 
 How this album has grown on me! By the 4th listen it's all I could think about. The harmonies are a highlight.
 
