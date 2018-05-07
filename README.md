@@ -13,8 +13,20 @@
 
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
+## 5/7 Double Nickels On The Dime - Minutemen
+* 4th or 5th Listen:
+
+## 5/6 You're Living All Over Me - Dinosaur Jr.
+* 1st Listen: Ok/ pretty good
+
+## 5/5 
+
+## 5/4 Saturday Night Fever - Various
+* 1st Listen: Ok
+The first handful of songs are incredible. Unfortunately, the rest feels like movie filler. A fairly imbalanced album.
+
 ## 5/3 Screamadelica - Primal Scream
-* 1st Listen: 
+* 1st Listen: Ok
 
 ## 5/2 Perfect From Now On - Built To Spill
 * 1st Listen: Pretty good
