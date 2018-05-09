@@ -13,8 +13,11 @@
 
 This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. Anyway...
 
-## 5/8 Psychocandy - The Jesus And Mary Chain
+## 5/9 Bubble & Scrape - Sebadoh
 * 1st Listen:
+
+## 5/8 Psychocandy - The Jesus And Mary Chain
+* 1st Listen: Ok/ pretty good
 
 ## 5/7 Double Nickels On The Dime - Minutemen
 * 4th or 5th Listen: Pretty good
