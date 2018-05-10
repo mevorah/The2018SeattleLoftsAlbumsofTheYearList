@@ -1,14 +1,16 @@
-This project is aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. The scale at first had been difficult to describe, but after ~130 albums, I was able to pin point the qualities of each ranking. This isn't a scale based on context/ influence (although these have certainly been observed), but instead timelessness - how these albums stand against each other in the vacuum that is 2018.
+There are certainly albums on this list that I've listened to countless (n) times, but this project is really aimed at filling my musical blindspots. 
+
+The scale at first had been difficult to describe, but after ~130 albums, I was able to pin point the qualities of each ranking. This isn't a scale based on context/ influence (although these have certainly been observed), but instead timelessness - how these albums stand against each other in the vacuum that is 2018.
 
 I've found it's difficult to get an accurate rating after just one listen. Some of the best albums require a degree of patience (see: *Low*). To this end, I note my rating after each listen.
 
 **Scale**
-1. Incredible / Amazing - The album as a whole is an experience
-2. Very Good - All songs are great, a couple resulting in a cathartic response
-3. Pretty Good - Entirely listenable, a couple of songs are stand outs
-4. Ok - Hit or miss, a couple of solid songs but then a bunch of filler (see:Appetite For Destruction)
-5. Not Great - Some songs are listenable, but overall just a chore to listen to
-6. Awful / The Worst - Little is redeeming, a pretty rough listenin experience
+1. ***Incredible / Amazing*** - The album as a whole is an experience
+2. ***Very Good*** - All songs are great, a couple resulting in a cathartic response
+3. ***Pretty Good*** - Entirely listenable, a couple of songs are stand outs
+4. ***Ok*** - Hit or miss, a couple of solid songs but then a bunch of filler (see:Appetite For Destruction)
+5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
+6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listenin experience
 
 ## 5/10 This Nation's Saving Grace - The Fall
 * 1st Listen:
