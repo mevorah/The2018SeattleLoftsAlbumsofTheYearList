@@ -64,6 +64,7 @@ On first listen, The Clash appear my rhythmically vaired than The Ramones, and m
 
 ## 4/24 Exile In Guyville - Liz Phair
 * 1st Listen: Not great
+* 2nd Listen: Ok
 
 ## 4/23 Aquemini - Outkast
 * 1st Listen: Ok
@@ -76,6 +77,7 @@ What is it about this album that makes it seem Koanig's voice is completely sepa
 
 ## 4/21 Summerteeth - Wilco
 * 1st Listen: Pretty/ very good
+* 2nd Listen: Pretty/ very good
 
 First listen in a couple of years.
 
@@ -240,6 +242,9 @@ So hard to tell who influenced them and who they influenced - the opening track 
 
 ## 3/14 Painful - Yo La Tengo
 * 1st Listen: Pretty/ very good
+* 2nd Listen: Pretty/ very good
+
+*Highlights:* I Was the Fool Beside You for Too Long, The Whole of the Law
 
 Wow.
 
