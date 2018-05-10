@@ -1,10 +1,6 @@
-**Listening**
-1. Priming pass - listen in the morning
-2. Second pass - form an opinion.. at night
-3. X pass - revisit opinion 😅
+This project is aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. The scale at first had been difficult to describe, but after ~130 albums, I was able to pin point the qualities of each ranking. This isn't a scale based on context/ influence (although these have certainly been observed), but instead timelessness - how these albums stand against each other in the vacuum that is 2018.
 
-
-This is a project aimed at filling my musical blindspots, favoring albums I haven't heard before. With that said, there are certainly albums on this list that I've listened to countless (n) times. The scale at first had been difficult to describe, but after ~130 albums, I was able to pin point each. This isn't a scale based on context/ influence (although these certainly have been found), but instead timelessness - how these albums stand agains each other in the vacuum that is 2018.
+I've found it's difficult to get an accurate rating after just one listen. Some of the best albums require a degree of patience (see: *Low*). To this end, I note my rating after each listen.
 
 **Scale**
 1. Incredible / Amazing - The album as a whole is an experience
