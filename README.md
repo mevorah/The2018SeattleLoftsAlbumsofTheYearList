@@ -12,6 +12,9 @@ I've found it's difficult to get an accurate rating after just one listen. Some 
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listenin experience
 
+## 5/11 Emperor Tomato Ketchup - Stereolab
+* 1st Listen:
+
 ## 5/10 This Nation's Saving Grace - The Fall
 * 1st Listen: Ok
 
