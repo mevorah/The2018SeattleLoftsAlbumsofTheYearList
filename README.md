@@ -13,7 +13,7 @@ I've found it's difficult to get an accurate rating after just one listen. Some 
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listenin experience
 
 ## 5/10 This Nation's Saving Grace - The Fall
-* 1st Listen:
+* 1st Listen: Ok
 
 ## 5/9 Bubble & Scrape - Sebadoh
 * 1st Listen: Ok
@@ -286,6 +286,7 @@ More tolerable than free form jazz - Mingus actually has a composition he's work
 ## 3/5 Aftermath - Rolling Stones
 * 1st Listen: Ok/ pretty good
 * 2nd Listen: Pretty good (maybe very good)
+* 3rd Listen: Pretty/ very good
 
 ## 3/3 Smiley Smile - Beach Boys
 * 1st/ 2nd Listen: OK/ pretty good
