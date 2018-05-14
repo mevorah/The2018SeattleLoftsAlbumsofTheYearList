@@ -12,8 +12,17 @@ I've found it's difficult to get an accurate rating after just one listen. Some 
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listenin experience
 
-## 5/11 Emperor Tomato Ketchup - Stereolab
+## 5/14 Check Your Head - Beastie Boys
 * 1st Listen:
+
+## 5/13 Damaged - Blackflag
+* 1st Listen: Not great/ ok
+
+## 5/12 Torches - Foster The People
+* 4/5th Listen: Pretty/ very good
+
+## 5/11 Emperor Tomato Ketchup - Stereolab
+* 1st Listen: Not great/ ok
 
 ## 5/10 This Nation's Saving Grace - The Fall
 * 1st Listen: Ok
@@ -41,6 +50,7 @@ The first handful of songs are incredible. Unfortunately, the rest feels like mo
 
 ## 5/2 Perfect From Now On - Built To Spill
 * 1st Listen: Pretty good
+* 2nd Listen: Pretty/ very good
 
 ## 5/1 Goat - The Jesus Lizard
 * 1st Listen: Ok
@@ -228,6 +238,7 @@ This album is the concentrate of Modest Mouse.
 * 1st Listen: Pretty.. very? good
 * 2nd Listen: Very good
 * 3rd Listen: Very good
+* 4th Listen: Very good
 
 Definitively, very good. Pop that doesn't emulate, but builds on those that came before. It feels as though The Beatles' experimentation had been boiled down into ideas that worked and those that didn't - the ideas that worked soley realized through this album. Everything from *Jumping Fences* to the 10x *Green Typewriters* - "How much longer.. can I wait?", in 1996 we had  arrived.
 
@@ -309,6 +320,7 @@ This album is thoroughly enjoyable all the way through. It's clear to see Kim De
 * 2nd Listen: Pretty good
 * 3rd Listen: Pretty/ very good
 * 4th Listen: Very good
+* 5th Listen: Very good
 
 This album is great. Albeit not as varied as Doolitle, this album still has direction. I find my self regulary going back to it. There's anger, layers, and hooks - I'm hooked.
 
