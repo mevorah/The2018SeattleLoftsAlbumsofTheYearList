@@ -10,7 +10,7 @@ I've found it's difficult to get an accurate rating after just one listen. Some 
 3. ***Pretty Good*** - Entirely listenable, a couple of songs are stand outs
 4. ***Ok*** - Hit or miss, a couple of solid songs but then a bunch of filler (see:Appetite For Destruction)
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
-6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listenin experience
+6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 5/14 Check Your Head - Beastie Boys
 * 1st Listen: Not great/ ok
