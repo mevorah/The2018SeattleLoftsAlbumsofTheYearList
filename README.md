@@ -13,7 +13,7 @@ I've found it's difficult to get an accurate rating after just one listen. Some 
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listenin experience
 
 ## 5/14 Check Your Head - Beastie Boys
-* 1st Listen:
+* 1st Listen: Not great/ ok
 
 ## 5/13 Damaged - Blackflag
 * 1st Listen: Not great/ ok
