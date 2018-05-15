@@ -40,6 +40,7 @@ You can feel the energy.. even when standing at your desk. I think that's the po
 
 ## 5/6 You're Living All Over Me - Dinosaur Jr.
 * 1st Listen: Ok/ pretty good
+* 2nd Listen: Pretty good
 
 ## 5/5 
 
