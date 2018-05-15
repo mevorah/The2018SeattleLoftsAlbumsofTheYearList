@@ -9,16 +9,33 @@
     <!--[if lt IE 9]>
     <script src="//html5shiv.googlecode.com/svn/trunk/html5.js"></script>
     <![endif]-->
+    <script src="https://ajax.googleapis.com/ajax/libs/jquery/3.3.1/jquery.min.js"></script>
+
   </head>
   <body>
     <div class="wrapper">
       <header>
-        {% capture list %}{% include List.md %}{% endcapture %}
-        {{ list | markdownify }}
+        <div id="list">
+          {% capture list %}{% include List.md %}{% endcapture %}
+          {{ list | markdownify }}
+          <!--<ol>
+            <li><a href="#r1">hello</a></li>
+            <li><a href="#r2">world</a></li>
+          </ol>-->
+        </div>
       </header>
       <section>
 
-      {{ content }}
+      <div id="content">
+        {{ content }}
+     <!-- <h1 id="r1">Hello</h1>
+      <ul><li>1</li></ul>
+      <ul><li>2</li></ul>
+      <h1 id="r2">Hello</h1>
+      <ul><li>1</li>
+      <li>2</li></ul>-->
+      </div>
+
 
       </section>
       <footer>
@@ -27,7 +44,20 @@
     </div>
     <script src="{{ '/assets/js/scale.fix.js' | relative_url }}"></script>
 
-  {% if site.google_analytics %}
+    <script>
+        $(document).ready(function() { 
+          var listItems = $('#list').find('a').each(function() {
+            var link = $(this);
+            var url = link.attr('href');
+            var correspondingHeader = $('#content').find(url);
+            var listenList = correspondingHeader.next().find('li');
+            var numListens = listenList.length;
+            link.text(link.text() + ' (' + numListens + ' listens)');
+          });
+        });
+    </script>
+    
+    {% if site.google_analytics %}
     <script>
         (function(i,s,o,g,r,a,m){i['GoogleAnalyticsObject']=r;i[r]=i[r]||function(){
         (i[r].q=i[r].q||[]).push(arguments)},i[r].l=1*new Date();a=s.createElement(o),
@@ -36,6 +66,6 @@
         ga('create', '{{ site.google_analytics }}', 'auto');
         ga('send', 'pageview');
     </script>
-  {% endif %}
+    {% endif %}
   </body>
 </html>
