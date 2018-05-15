@@ -65,8 +65,15 @@
               }
             });
 
-            var numListens = containsNth ?  'N' : listenList.length;
-            link.text(link.text() + ' - ' + numListens);
+            var numListensText = containsNth ?  'N' : listenList.length;
+            link.text(link.text() + ' - ' + numListensText);
+
+            var maxListens = 5;
+            var minOpacacity = .25;
+            var numListens = containsNth ? maxListens : listenList.length;
+            var opacity = ((1 - minOpacacity) * (numListens / maxListens)) + minOpacacity;
+            console.log(opacity);
+            link.css('opacity', opacity);
           });
         });
     </script>
