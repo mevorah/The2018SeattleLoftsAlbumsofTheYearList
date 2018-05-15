@@ -86,7 +86,7 @@
 14. [Abraxas - Santana (Ok/PG)](#123-abraxas---santana)
 14. [Smiley Smile - Beach Boys (OK/PG)](#33-smiley-smile---beach-boys)
 14. [Illmatic - Nas (Ok/PG)](#43-illmatic---nas)
-14. [Bee Thousand - Guided By Voices (Ok/PG)](#4/15-bee-thousand---guided-by-voices)
+14. [Bee Thousand - Guided By Voices (Ok/PG)](#415-bee-thousand---guided-by-voices)
 14. [Ramones - Ramones (Ok/PG)](#412-ramones---ramones)
 13. [Bossanova - Pixies (Ok/PG)](#45-bossanova---pixies)
 13. [The Clash - The Clash (Ok/PG)](#430-the-clash---the-clash)
