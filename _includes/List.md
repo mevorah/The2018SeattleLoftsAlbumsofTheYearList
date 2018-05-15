@@ -62,7 +62,7 @@
 9. [Double Nickels On The Dime - Minutemen (PG)](#57-double-nickels-on-the-dime---minutemen)
 17. [Richard D. James Album - Aphex Twin (PG)](#316-richard-d-james-album---aphex-twin)
 13. [Ladies & Gentlemen We Are Floating In Space - Spiritualized (PG)](#326-ladies---gentlemen-we-are-floating-in-space---spiritualized)
-13. [Stand - Sly & The Family Stone (PG)](#228-stand---sly-&-the-family-stone)
+13. [Stand - Sly & The Family Stone (PG)](#228-stand---sly--the-family-stone)
 12. [Os Mutantes - Os Mutantes (PG)](#31-os-mutantes---os-mutantes)
 12. [Getz/ Gilberto - Stan Getz (PG)](#221-getz-gilberto---stan-getz)
 12. [Gilberto Gil - Gilberto Gil (PG)](#38-gilberto-gil---gilberto-gil)
