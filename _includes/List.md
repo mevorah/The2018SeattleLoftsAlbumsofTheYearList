@@ -130,4 +130,6 @@
 12. [Astral Weeks - Van Morrison (NG)](#410-astral-weeks---van-morrison)
 18. [Everything Falls Apart - Hüsker Du (NG)](#14-everything-falls-apart---hüsker-du)
 <br/>
+<i>(Opacity = Number of Listens)</i>
+<br>
 <iframe src="https://open.spotify.com/embed/user/1226088349/playlist/0stPoUSo8QaT2TihrKpns1" width="300" height="78" frameborder="0" allowtransparency="true" style="border-radius:8px"></iframe>
