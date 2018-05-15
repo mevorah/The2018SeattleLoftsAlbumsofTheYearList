@@ -351,7 +351,7 @@ Better than Pet Sounds? I. Don't. Think. So.
 The songs stand for themselves - keeping instrumentation to a minimum, Neil Young puts a lot of this album's weight on its melodies. He fully succeeds.
 
 ## 2/24 Helplessness Blues - Fleet Foxes
-* nth Listen: Pretty/ very good
+* Nth Listen: Pretty/ very good
 
 I hadn't listened to this album in seven years. With a fresh look, it's still great. If I had an orchard, I'd work til I'm sore - I would too.. I would too.
 
@@ -419,10 +419,10 @@ I love this album. Perhaps the perfect backdrop for a summer house party.
 * 2nd Listen (Same Day): Pretty/ Very good
 
 ## 2/8 Cosmo's Factory - Creedence Clearwater Revival
-1st Listen: Pretty good
+* 1st Listen: Pretty good
 
 ## 2/7 Station To Station - David Bowie
-1st Listen: Pretty/ very good
+* 1st Listen: Pretty/ very good
 
 ## 2/6 Paul Simon - Paul Simon
 * 1st Listen: Very good
@@ -446,14 +446,13 @@ So many influences and deadpan lyrics, and so much musical variety - this album 
 ## 2/2 Exile On Main Street - Rolling Stones
 * 1st Listen: Ok/ Pretty good
 * 2nd Listen: Pretty good
+* 3rd Listen: Pretty good
+* 4th Listen: Very good
+* 5th Listen: Very good
 
 So many instruments going. Super upbeat. Thoroughly enjoyable blues. With that said, only a handful of songs really stand out - there is a uniformity across the album.
 
-* 3rd Listen: Pretty good
-
 Forget what I said, there is certainly variety on this album. It's pretty good!
-
-* 4th/ 5th Listen: Very good
 
 ## 2/1 Q: Are We Not Men? A: We Are Devo! - Devo
 * 1st Listen: Ok/ pretty good
@@ -473,7 +472,7 @@ Forget what I said, there is certainly variety on this album. It's pretty good!
 Slash's fantastic guitar work is present throughout the album. This along with the three solid songs on this album make it ok. Aside from that, just a ton of filler on boring subject matter.
 
 ## 1/28 The Moon & Antarctica - Modest Mouse
-Nth Listen: Incredible
+* Nth Listen: Incredible
 
 ## 1/27 Rumors - Fleetwood Mac
 * 1st Listen: Pretty/ very good
@@ -490,7 +489,7 @@ The first half of this album is cranked up to 10. Great song writing, tasteful u
 3rd Listen: Pretty good
 
 ## 1/24 Get Happy - Elvis Costello And The Attractions
-1st Listen: Ok/ pretty good
+* 1st Listen: Ok/ pretty good
 
 The opening track has Elvis Costello at his worst. What really pulled me in was the guitar on Opportunity, and the Ska-esq bass on The Imposter. By Secondary Modern, vocals have dropped to bearable levels. King Horse brings the entire band onto the same level, opening the rest of the album. Perhaps the first three songs grouped together can be thought of as the intro? This would be plausible, but then comes Possesion, as if starting from the beginnig again.
 
@@ -530,7 +529,7 @@ On the second listen, finally hear what this album is about - the landscape of d
 There is no doubt that this is a great album with excellent song writing.. but god damn does the production feel dated, as though firmly stuck in the era of 80's dad-rock.
 
 ## 1/16 Purple Rain - Prince
-1st Listen: Pretty good
+* 1st Listen: Pretty good
 
 ## 1/15 Remain In Light - Talking Heads
 * 1st Listen: Ok
@@ -542,7 +541,7 @@ There is no doubt that this is a great album with excellent song writing.. but g
 The sounds of the 80s? It took time, but this album is fantastic.
 
 ## 1/14 Revolver - The Beatles
-Nth Listen: Very good
+* Nth Listen: Very good
 
 ## 1/13 Joshua Tree - U2
 * 1st Listen: Pretty good
@@ -562,19 +561,19 @@ Production has aged very well.
 * Re considered: Pretty good
 
 ## 1/10 Graceland - Paul Simon
-1st Listen: Pretty good
+* 1st Listen: Pretty good
 
 ## 1/9 Scary Monsters- David Bowie
-1st Listen: Pretty good
+* 1st Listen: Pretty good
 
 ## 1/8 Paul’s Boutique - Beastie Boys
-1st Listen: Pretty good
+* 1st Listen: Pretty good
 
 ## 1/7 In the Aeroplane Over The Sea - Neutral Milk Hotel
-Nth Listen: Amazing
+* Nth Listen: Amazing
 
 ## 1/6 New Day Rising - Hüsker Du
-1st Listen: Ok
+* 1st Listen: Ok
 
 ## 1/6 13 Songs - Fugazi
 * 1st Listen: Ok

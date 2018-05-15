@@ -20,6 +20,7 @@
         <div id="list">
           {% capture list %}{% include List.md %}{% endcapture %}
           {{ list | markdownify }}
+          
           <!--<ol>
             <li><a href="#r1">hello</a></li>
             <li><a href="#r2">world</a></li>
@@ -29,12 +30,13 @@
       <section>
 
       <div id="content">
-        {{ content }}
-     <!-- <h1 id="r1">Hello</h1>
+        {{ content }} -->
+     
+      <!-- <h1 id="r1">Hello</h1>
       <ul><li>1</li></ul>
       <ul><li>2</li></ul>
       <h1 id="r2">Hello</h1>
-      <ul><li>1</li>
+      <ul><li>Nth</li>
       <li>2</li></ul>-->
       </div>
 
@@ -53,8 +55,18 @@
             var url = link.attr('href');
             var correspondingHeader = $('#content').find(url);
             var listenList = correspondingHeader.next().find('li');
-            var numListens = listenList.length;
-            link.text(link.text() + ' (' + numListens + ' listens)');
+
+
+            var containsNth = false;
+            $(listenList).each(function() {
+              var bulletText = $(this).text();
+              if (bulletText.includes('Nth')) {
+                containsNth = true;
+              }
+            });
+
+            var numListens = containsNth ?  'N' : listenList.length;
+            link.text(link.text() + ' (' + numListens + ')');
           });
         });
     </script>
