@@ -17,6 +17,9 @@ I've found it's difficult to get an accurate rating after just one listen. Some 
 
 ## 5/13 Damaged - Blackflag
 * 1st Listen: Not great/ ok
+* 2nd Listen: Ok
+
+You can feel the energy.. even when standing at your desk. I think that's the point.
 
 ## 5/12 Torches - Foster The People
 * 4/5th Listen: Pretty/ very good
@@ -53,7 +56,7 @@ The first handful of songs are incredible. Unfortunately, the rest feels like mo
 * 2nd Listen: Pretty/ very good
 
 ## 5/1 Goat - The Jesus Lizard
-* 1st Listen: Ok
+* 1st Listen: Not great/ ok
 
 ## 4/30 The Clash - The Clash
 * 1st Listen: Ok
