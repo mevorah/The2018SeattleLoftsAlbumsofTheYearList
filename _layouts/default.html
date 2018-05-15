@@ -25,6 +25,8 @@
             <li><a href="#r1">hello</a></li>
             <li><a href="#r2">world</a></li>
           </ol>-->
+          <br>
+          <i>(Opacity = Number of Listens)</i>
         </div>
       </header>
       <section>
@@ -72,7 +74,6 @@
             var minOpacacity = .25;
             var numListens = containsNth ? maxListens : listenList.length;
             var opacity = ((1 - minOpacacity) * (numListens / maxListens)) + minOpacacity;
-            console.log(opacity);
             link.css('opacity', opacity);
           });
         });
