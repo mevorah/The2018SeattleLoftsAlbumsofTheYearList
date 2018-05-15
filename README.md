@@ -57,6 +57,7 @@ The first handful of songs are incredible. Unfortunately, the rest feels like mo
 
 ## 4/30 The Clash - The Clash
 * 1st Listen: Ok
+* 2nd Listen: Ok/ pretty good
 
 On first listen, The Clash appear my rhythmically vaired than The Ramones, and more accessible than the Sex Pistols.
 
