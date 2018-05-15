@@ -12,6 +12,9 @@ I've found it's difficult to get an accurate rating after just one listen. Some 
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 5/15 The Three E.P's - The Beta Band
+* 1st Listen:
+
 ## 5/14 Check Your Head - Beastie Boys
 * 1st Listen: Not great/ ok
 
