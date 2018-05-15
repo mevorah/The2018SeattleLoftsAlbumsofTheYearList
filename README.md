@@ -484,9 +484,9 @@ Slash's fantastic guitar work is present throughout the album. This along with t
 The first half of this album is cranked up to 10. Great song writing, tasteful use of the saxaphone, great!
 
 ## 1/25 Never Mind The Bollocks - Sex Pistols
-1st Listen: Ok/ pretty good
-2nd Listen: Pretty good
-3rd Listen: Pretty good
+* 1st Listen: Ok/ pretty good
+* 2nd Listen: Pretty good
+* 3rd Listen: Pretty good
 
 ## 1/24 Get Happy - Elvis Costello And The Attractions
 * 1st Listen: Ok/ pretty good
