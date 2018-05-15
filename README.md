@@ -1,8 +1,4 @@
-There are certainly albums on this list that I've listened to countless (n) times, but this project is really aimed at filling my musical blindspots. 
-
-The scale at first had been difficult to describe, but after ~130 albums, I was able to pin point the qualities of each ranking. This isn't a scale based on context/ influence (although these have certainly been observed), but instead timelessness - how these albums stand against each other in the vacuum that is 2018.
-
-I've found it's difficult to get an accurate rating after just one listen. Some of the best albums require a degree of patience (see: *Low*). To this end, I note my rating after each listen.
+There are certainly albums on this list that I've listened to countless (n) times, but this project is really aimed at filling my musical blindspots. It's more than listening to an album once - most demand several listens (see: *Low*). Rating scale below:
 
 **Scale**
 1. ***Incredible / Amazing*** - The album as a whole is an experience
