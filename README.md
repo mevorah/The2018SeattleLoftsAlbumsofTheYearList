@@ -430,7 +430,7 @@ I love this album. Perhaps the perfect backdrop for a summer house party.
 
 Fantastic songs, Paul Simon's voice is incredible - surely an influence on Elliot Smith. Upon the second listen, the lyrics were lacking in a handfull of songs. Third listen will tell.
 
-## 2/5 Crookes Rain, Crooked Rain - Pavement
+## 2/5 Crooked Rain, Crooked Rain - Pavement
 * 1st Listen: Pretty good
 * 2nd Listen: Very good/ (may be incredible)
 
