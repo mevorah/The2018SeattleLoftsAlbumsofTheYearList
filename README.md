@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 5/15 The Three E.P's - The Beta Band
-* 1st Listen:
+* 1st Listen: Ok
 
 ## 5/14 Check Your Head - Beastie Boys
 * 1st Listen: Not great/ ok
