@@ -107,6 +107,7 @@
 12. [The Three E.P's - The Beta Band (Ok)](#515-the-three-eps---the-beta-band)
 12. [Bookends - Simon & Garfunkel (Ok)](#324-bookends---simon--garfunkel)
 12. [Unknown Pleasures - Joy Division (Ok)](#325-unknown-pleasures---joy-division)
+12. [Nowhere - Ride (Ok)](#418-nowhere-ride)
 12. [Trans Europe Express - Kraftwerk (Ok)](#329-trans-europe-express---kraftwerk)
 12. [This Nation's Saving Grace - The Fall (Ok)](#510-this-nations-saving-grace---the-fall)
 12. [Power, Corruption & Lies - New Order (Ok)](#425-power-corruption--lies---new-order)
