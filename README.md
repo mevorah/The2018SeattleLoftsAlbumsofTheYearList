@@ -63,6 +63,7 @@ The first handful of songs are incredible. Unfortunately, the rest feels like mo
 
 ## 5/1 Goat - The Jesus Lizard
 * 1st Listen: Not great/ ok
+* 2nd Listen: Ok
 
 ## 4/30 The Clash - The Clash
 * 1st Listen: Ok
