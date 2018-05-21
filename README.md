@@ -8,7 +8,10 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
-## 5/20
+## 5/21 XO - Elliot Smith
+* 1st Listen:
+
+## 5/20 
 
 ## 5/19 Sublime - Sublime
 * Nth Listen: Pretty/ very good
