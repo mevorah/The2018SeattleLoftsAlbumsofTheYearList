@@ -8,7 +8,13 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
-## 5/18
+## 5/20
+
+## 5/19 Sublime - Sublime
+* Nth Listen: Pretty/ very good
+
+## 5/18 Either/ Or - Elliot Smith
+* Nth Listen: Very good
 
 ## 5/17 Nowhere - Ride
 * 1st Listen: Ok
@@ -62,6 +68,7 @@ The first handful of songs are incredible. Unfortunately, the rest feels like mo
 ## 5/2 Perfect From Now On - Built To Spill
 * 1st Listen: Pretty good
 * 2nd Listen: Pretty/ very good
+* 3rd Listen: Pretty/ very good
 
 ## 5/1 Goat - The Jesus Lizard
 * 1st Listen: Not great/ ok
