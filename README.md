@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 5/22 Brighten The Corners - Pavement
-* 1st Listen:
+* 1st Listen: Pretty good
 
 ## 5/21 XO - Elliot Smith
 * 1st Listen: Pretty good
@@ -62,6 +62,7 @@ You can feel the energy.. even when standing at your desk. I think that's the po
 ## 5/6 You're Living All Over Me - Dinosaur Jr.
 * 1st Listen: Ok/ pretty good
 * 2nd Listen: Pretty good
+* 3rd Listen: Pretty good
 
 ## 5/5 
 
