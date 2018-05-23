@@ -8,6 +8,11 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 5/23 Legeng - Bob Marley and the Wailers
+* 1st Listen: Pretty/ very good
+
+Every great reggae song has been put on this album. What a tour de force of... reggae. Pretty/ very good.
+
 ## 5/22 Brighten The Corners - Pavement
 * 1st Listen: Pretty good
 
@@ -52,6 +57,8 @@ You can feel the energy.. even when standing at your desk. I think that's the po
 
 ## 5/9 Bubble & Scrape - Sebadoh
 * 1st Listen: Ok
+
+This album is in the mix. The tonality is inventive. Unfortunately, the lyrics are at times lacking.
 
 ## 5/8 Psychocandy - The Jesus And Mary Chain
 * 1st Listen: Ok/ pretty good
