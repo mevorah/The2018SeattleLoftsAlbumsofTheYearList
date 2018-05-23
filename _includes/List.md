@@ -37,6 +37,7 @@
 13. [Torches - Foster The People (PG/VG)](#512-torches---foster-the-people)
 4. [Blonde On Blonde - Bob Dylan (PG/VG)](#223-blonde-on-blonde---bob-dylan)
 7. [Paul Simon - Paul Simon (PG/VG)](#26-paul-simon---paul-simon)
+7. [Legend - Bob Marley and the Wailers (PG/VG)](#523-legend---bob-marley-and-the-wailers)
 4. [Helplessness Blues - Fleet Foxes (PG/VG)](#224-helplessness-blues---fleet-foxes)
 11. [Amnesiac - Radiohead (PG/VG)](#310-amnesiac---radiohead)
 10. [Rumors - Fleetwood Mac (PG/VG)](#127-rumors---fleetwood-mac)
