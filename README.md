@@ -582,7 +582,7 @@ The sounds of the 80s? It took time, but this album is fantastic.
 * 1st Listen: Pretty good
 * 2nd Listen: Pretty/ Very good
 * 3rd Listen: Very good
-* 4th Listen: Very good/ incredible
+* 4th Listen: Very good
 
 Production has aged very well. Every song is a standout. Phenomenal arrangement, the entire album flow is fantastic.
 
