@@ -577,6 +577,9 @@ The sounds of the 80s? It took time, but this album is fantastic.
 
 ## 1/14 Revolver - The Beatles
 * Nth Listen: Very good
+* N+1 Listen: Very good
+
+This album is so great. Although I'm not crazy about the sitar parts, the highlights more than make up for it.
 
 ## 1/13 Joshua Tree - U2
 * 1st Listen: Pretty good
