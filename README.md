@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 5/24 War - U2
-* 1st Listen:
+* 1st Listen: Ok/ pretty good
 
 ## 5/23 Legend - Bob Marley and the Wailers
 * 1st Listen: Pretty/ very good
@@ -582,8 +582,9 @@ The sounds of the 80s? It took time, but this album is fantastic.
 * 1st Listen: Pretty good
 * 2nd Listen: Pretty/ Very good
 * 3rd Listen: Very good
+* 4th Listen: Very good/ incredible
 
-Production has aged very well.
+Production has aged very well. Every song is a standout. Phenomenal arrangement, the entire album flow is fantastic.
 
 ## 1/12 Violent Femmes - Violent Femmes
 * 1st Listen: Very good
