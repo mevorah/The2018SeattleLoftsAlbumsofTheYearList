@@ -437,6 +437,7 @@ This album is crazy hit or miss.
 
 ## 2/13 Rio - Duran Duran
 * 1st Listen: Not great
+* 2nd Listen: Ok
 
 ## 2/12 Bitches Brew - Miles Davis
 * 1st Listen: Pretty good
@@ -595,7 +596,8 @@ Production has aged very well. Every song is a standout. Phenomenal arrangement,
 ## 1/12 Violent Femmes - Violent Femmes
 * 1st Listen: Very good
 * 2nd Listen: Very good
-* **3rd Listen: Very good**
+* 3rd Listen: Very good
+* 4th Listen: Very good
 
 ## 1/11 Nebraska - Bruce Springsteen
 * 1st Listen: Pretty good
