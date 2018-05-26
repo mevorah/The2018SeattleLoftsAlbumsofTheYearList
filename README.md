@@ -11,11 +11,17 @@ There are certainly albums on this list that I've listened to countless (n) time
 ## 5/26 Electric Ladyland - Jimi Hendrix
 * 1st Listen:
 
+To look up: Was this pre or post meeting Clapton? As with previous albums, Jimi Hendrix turns everything on its head. But for this guy the background vocals unfortunately detract - see cross town traffic. They're vocals that are completely fixed in the 70s sound. Vocals that pull some aspects of this album (helplessly) into the 70s, robbing the music of a sense of timelessness that is found on his other albums.
+
+But with that said, there are standouts on this album - despite the sound of Traffic, Crosstown Traffic - Voodoo Chile - Burning of the Midnight Lamp. Always inventive, his face-melting solos are a highlight.
+
+I guess what I'm trying to say is.. Stay away from him Eric!
+
 ## 5/25 Goodbye Yellow Brick Road - Elton John
 * 1st Listen: Ok/ pretty good
 
-## 5/24 War - U2
-* 1st Listen: Ok/ pretty good
+## 5/24 War - 
+* 1st Listen: Ok/ pretty good are
 
 ## 5/23 Legend - Bob Marley and the Wailers
 * 1st Listen: Pretty/ very good
