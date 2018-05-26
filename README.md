@@ -8,8 +8,11 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
-## 5/25 Goodbye Yellow Brick Road - Elton John
+## 5/26 Electric Ladyland - Jimi Hendrix
 * 1st Listen:
+
+## 5/25 Goodbye Yellow Brick Road - Elton John
+* 1st Listen: Ok/ pretty good
 
 ## 5/24 War - U2
 * 1st Listen: Ok/ pretty good
