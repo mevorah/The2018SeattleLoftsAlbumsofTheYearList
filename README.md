@@ -15,7 +15,7 @@ To look up: Was this pre or post meeting Clapton? As with previous albums, Jimi 
 
 But with that said, there are standouts on this album - despite the sound of Traffic, Crosstown Traffic - Voodoo Chile - Burning of the Midnight Lamp. Always inventive, his face-melting solos are a highlight.
 
-I guess what I'm trying to say is.. Stay away from him Eric!
+I guess what I'm trying to say is.. Stay away from him, Eric!
 
 ## 5/25 Goodbye Yellow Brick Road - Elton John
 * 1st Listen: Ok/ pretty good
