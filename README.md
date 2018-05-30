@@ -11,7 +11,8 @@ There are certainly albums on this list that I've listened to countless (n) time
 ## 5/29 Dig Me Out - Sleater-Kinney
 * 1st Listen: Ok
 
-## 5/28 
+## 5/28 An Awesome Wave - Alt-j
+* 1st Listen: Not great/ Ok
 
 ## 5/27 Cleopatra - The Lumineers
 * 1st Listen: Ok/ pretty good
@@ -28,8 +29,8 @@ I guess what I'm trying to say is.. Traffic. Is. The. Worst.
 ## 5/25 Goodbye Yellow Brick Road - Elton John
 * 1st Listen: Ok/ pretty good
 
-## 5/24 War - 
-* 1st Listen: Ok/ pretty good are
+## 5/24 War - U2
+* 1st Listen: Ok/ pretty good
 
 ## 5/23 Legend - Bob Marley and the Wailers
 * 1st Listen: Pretty/ very good
