@@ -8,8 +8,16 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 5/29 Dig Me Out - Sleater-Kinney
+* 1st Listen: Ok
+
+## 5/28 
+
+## 5/27 Cleopatra - The Lumineers
+* 1st Listen: Ok/ pretty good
+
 ## 5/26 Electric Ladyland - Jimi Hendrix
-* 1st Listen:
+* 1st Listen: Ok/ pretty good
 
 To look up: Was this pre or post meeting Dave Mason? As with previous albums, Jimi Hendrix turns everything on its head. But for this guy the background vocals unfortunately detract - see cross town traffic. They're vocals that are completely fixed in the 70s sound. Vocals that pull some aspects of this album (helplessly) into the 70s, robbing the music of a sense of timelessness that is found on his other albums.
 
