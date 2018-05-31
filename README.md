@@ -8,8 +8,11 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
-## 5/30 Paranoid - Black Sabbath
+## 5/31 Ace of Spades - Motorhead
 * 1st Listen:
+
+## 5/30 Paranoid - Black Sabbath
+* 1st Listen: Pretty good
 
 ## 5/29 Dig Me Out - Sleater-Kinney
 * 1st Listen: Ok
