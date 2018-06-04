@@ -11,7 +11,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 ## 6/4 Band On The Run - Wings
 * 1st Listen: Pretty good
 
-Paul McCartney opens up with two huge songs. The rest of the album is spent dipping his toe in several genres. One has to admire his tastefulness in doing so. Mamunia for instance - a song that channels aspects of African music, while remaining grounded in McCartney's pop sensibility. It is something that comes off as refreshing in contrast to Paul Simon's *Graceland*. And he does this all over the album. Pretty good.
+Paul McCartney opens up with two huge songs. The rest of the album is spent dipping his toe in several genres. One has to admire his tastefulness in doing so. Mamunia for instance - a song that channels aspects of African music, while remaining grounded in McCartney's pop sensibility. It is something that comes off as refreshing in contrast to Paul Simon's *Graceland*. He does this all over the album. Pretty good.
 
 ## 6/3 
 
