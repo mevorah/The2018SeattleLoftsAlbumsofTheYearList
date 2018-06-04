@@ -8,8 +8,20 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 6/4
+
+## 6/3 
+
+## 6/2 Keep It Like A Secret - Built To Spill
+* Nth Listen: Pretty/ very good
+
+## 6/1 Bat Out of Hell - Meat Loaf
+* 1st Listen: Ok
+
+There are moments on this album that are unbearable.
+
 ## 5/31 Ace of Spades - Motorhead
-* 1st Listen:
+* 1st Listen: Ok
 
 ## 5/30 Paranoid - Black Sabbath
 * 1st Listen: Pretty good
