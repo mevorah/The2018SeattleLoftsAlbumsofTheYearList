@@ -8,6 +8,9 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 6/5 Every Picture Tells A Story - Rod Stewart
+* 1st Listen:
+
 ## 6/4 Band On The Run - Wings
 * 1st Listen: Pretty good
 * 2nd Listen: Pretty good
