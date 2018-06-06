@@ -11,10 +11,12 @@ There are certainly albums on this list that I've listened to countless (n) time
 ## 6/6 A Ghost Is Born - Wilco
 * Nth Listen: Very good
 
-An album I once considered unlistenable. Once I heard the live album once or nine times, I was hooked. This album comes alive after five listens - fantastic lyrics, exprimentation. People who say this album is a misfire after Yankee Hotel Foxtrot haven't given it the proper time. This album is no Smiley Smile - it switches it up from predecessor in the best ways.
+An album I once considered unlistenable. Once I heard the live album once or nine times, I was hooked. This album comes alive after five listens - fantastic lyrics, exprimentation. People who say this album is a misfire after Yankee Hotel Foxtrot haven't given it the proper time. This album is no Smiley Smile - it switches it up in the best ways while not overly hanging on the coattails of its predecessor.
 
 ## 6/5 Every Picture Tells A Story - Rod Stewart
 * 1st Listen: Ok
+
+The drums on *Every Picture Tells A Story* and the song *Maggie May* are highlights.
 
 ## 6/4 Band On The Run - Wings
 * 1st Listen: Pretty good
