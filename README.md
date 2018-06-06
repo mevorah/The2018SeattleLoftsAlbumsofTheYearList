@@ -8,8 +8,13 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 6/6 A Ghost Is Born - Wilco
+* Nth Listen: Very good
+
+An album I once considered unlistenable. Once I heard the live album once or nine times, I was hooked. This album comes alive after five listens - fantastic lyrics, exprimentation. People who say this album is a misfire after Yankee Hotel Foxtrot haven't given it the proper time. This album is no Smiley Smile - it switches it up from predecessor in the best ways.
+
 ## 6/5 Every Picture Tells A Story - Rod Stewart
-* 1st Listen:
+* 1st Listen: Ok
 
 ## 6/4 Band On The Run - Wings
 * 1st Listen: Pretty good
@@ -17,7 +22,8 @@ There are certainly albums on this list that I've listened to countless (n) time
 
 Paul McCartney opens up with two huge songs. The rest of the album is spent dipping his toes into several genres. One has to admire his tastefulness in doing so. Mamunia for instance - a song that channels aspects of African music, while remaining grounded in McCartney's pop sensibility. It is something that comes off as refreshing in contrast to Paul Simon's *Graceland*. He does this all over the album. Pretty good.
 
-## 6/3 
+## 6/3 Fakebook - Yo La Tengo
+* 1st Listen: Ok/ pretty good
 
 ## 6/2 Keep It Like A Secret - Built To Spill
 * Nth Listen: Pretty/ very good
