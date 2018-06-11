@@ -9,13 +9,13 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 6/11 10 - Pearl Jam
-* 1st Listen:
+* 1st Listen: Ok/ pretty good
 
 ## 6/10 Under The Bushes Under The Stars - Guided By Voices
 * 1st Listen:
 
 ## 6/7 Songs of Leonard Cohen - Leonard Cohen
-* 1st Listen:
+* 1st Listen: Ok/ pretty good
 
 ## 6/6 A Ghost Is Born - Wilco
 * Nth Listen: Very good
@@ -30,11 +30,13 @@ The drums on *Every Picture Tells A Story* and the song *Maggie May* are highlig
 ## 6/4 Band On The Run - Wings
 * 1st Listen: Pretty good
 * 2nd Listen: Pretty good
+* 3rd Listen: Pretty/ very good
 
 Paul McCartney opens up with two huge songs. The rest of the album is spent dipping his toes into several genres. One has to admire his tastefulness in doing so. Mamunia for instance - a song that channels aspects of African music, while remaining grounded in McCartney's pop sensibility. It is something that comes off as refreshing in contrast to Paul Simon's *Graceland*. He does this all over the album. Pretty good.
 
 ## 6/3 Fakebook - Yo La Tengo
 * 1st Listen: Ok/ pretty good
+* 2nd Listen: Ok/ pretty good
 
 ## 6/2 Keep It Like A Secret - Built To Spill
 * Nth Listen: Pretty/ very good
@@ -52,6 +54,7 @@ There are moments on this album that are unbearable.
 
 ## 5/29 Dig Me Out - Sleater-Kinney
 * 1st Listen: Ok
+* 2nd Listen: Ok
 
 ## 5/28 An Awesome Wave - Alt-j
 * 1st Listen: Not great/ Ok
@@ -229,6 +232,7 @@ Like Springsteen, once you get over the cheesiness, the music is verrry good.
 ## 4/13 Grace - Jeff Buckley
 * 1st Listen: Ok
 * 2nd Listen: Ok
+* 3rd Listen: Ok/ pretty good
 
 The guy's singing is unbelievable! With that said, there were few songs that actually hooked me.
 
