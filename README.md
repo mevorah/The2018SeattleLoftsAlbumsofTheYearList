@@ -8,6 +8,12 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 6/11 10 - Pearl Jam
+* 1st Listen:
+
+## 6/10 Under The Bushes Under The Stars - Guided By Voices
+* 1st Listen:
+
 ## 6/7 Songs of Leonard Cohen - Leonard Cohen
 * 1st Listen:
 
