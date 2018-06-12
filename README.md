@@ -18,7 +18,7 @@ Highlights:
 * 1st Listen: Ok/ pretty good
 
 ## 6/10 Under The Bushes Under The Stars - Guided By Voices
-* 1st Listen:
+* 1st Listen: Ok
 
 ## 6/7 Songs of Leonard Cohen - Leonard Cohen
 * 1st Listen: Ok/ pretty good
