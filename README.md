@@ -8,6 +8,12 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 6/12 Music From Big Pink - The Band
+* 1st Listen: Ok
+
+Highlights:
+1. *The Weight*
+
 ## 6/11 10 - Pearl Jam
 * 1st Listen: Ok/ pretty good
 
@@ -55,6 +61,7 @@ There are moments on this album that are unbearable.
 ## 5/29 Dig Me Out - Sleater-Kinney
 * 1st Listen: Ok
 * 2nd Listen: Ok
+* 3rd Listen: Ok/ pretty good
 
 ## 5/28 An Awesome Wave - Alt-j
 * 1st Listen: Not great/ Ok
