@@ -11,9 +11,6 @@ There are certainly albums on this list that I've listened to countless (n) time
 ## 6/12 Music From Big Pink - The Band
 * 1st Listen: Ok
 
-Highlights:
-1. *The Weight*
-
 ## 6/11 10 - Pearl Jam
 * 1st Listen: Ok/ pretty good
 
