@@ -35,6 +35,7 @@ An album I once considered unlistenable. Once I heard the live album once or nin
 
 ## 6/5 Every Picture Tells A Story - Rod Stewart
 * 1st Listen: Ok
+* 2nd Listen: Ok
 
 The drums on *Every Picture Tells A Story* and the song *Maggie May* are highlights.
 
