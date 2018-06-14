@@ -8,8 +8,11 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
-## 6/13 The Downward Spiral - Nine Inch Nails
+## 6/14 In Utero - Nirvana
 * 1st Listen:
+
+## 6/13 The Downward Spiral - Nine Inch Nails
+* 1st Listen: Not great/ ok
 
 ## 6/12 Music From Big Pink - The Band
 * 1st Listen: Ok
@@ -43,7 +46,7 @@ The drums on *Every Picture Tells A Story* and the song *Maggie May* are highlig
 * 1st Listen: Pretty good
 * 2nd Listen: Pretty good
 * 3rd Listen: Pretty/ very good
-* 3rd Listen: Pretty/ very good
+* 4th Listen: Pretty/ very good
 
 Paul McCartney opens up with two huge songs. The rest of the album is spent dipping his toes into several genres. One has to admire his tastefulness in doing so. Mamunia for instance - a song that channels aspects of African music, while remaining grounded in McCartney's pop sensibility. It is something that comes off as refreshing in contrast to Paul Simon's *Graceland*. He does this all over the album. Pretty good.
 
@@ -120,6 +123,7 @@ Every great reggae song has been put on this album. What a tour de force of... r
 
 ## 5/15 The Three E.P's - The Beta Band
 * 1st Listen: Ok
+* 2nd Listen: Ok
 
 ## 5/14 Check Your Head - Beastie Boys
 * 1st Listen: Not great/ ok
