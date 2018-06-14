@@ -433,10 +433,12 @@ More tolerable than free form jazz - Mingus actually has a composition he's work
 *Good Vibrations* is amazing, but the rest of the album leaves a lot to be desired after Pet Sounds. Some tracks are needlessly obscure (She's Goin Bald), others range between ok and pretty good. *Ok/ pretty good*.
 
 ## 3/2/3 Last Splash - The Breeders
-* 1st/2nd Listen: Pretty good
+* 1st Listen: Pretty good
+* 2nd Listen: Pretty good
 * 3rd Listen: Pretty/ very good
-* 4/5th Listen: Very good
-* 6th Listen: **Very good**
+* 4th Listen: Very good
+* 5th Listen: Very good
+* 6th Listen: Very good
 
 This album is thoroughly enjoyable all the way through. It's clear to see Kim Deal's influence on the Pixes.
 
