@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 6/15 Workingman's Dead - Grateful Dead
-* 1st Listen:
+* 1st Listen: Ok/ pretty good
 
 ## 6/14 In Utero - Nirvana
 * 1st Listen: Pretty good
