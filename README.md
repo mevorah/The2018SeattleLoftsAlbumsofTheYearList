@@ -142,6 +142,7 @@ You can feel the energy.. even when standing at your desk. I think that's the po
 
 ## 5/10 This Nation's Saving Grace - The Fall
 * 1st Listen: Ok
+* 2nd Listen: Ok/ pretty good
 
 ## 5/9 Bubble & Scrape - Sebadoh
 * 1st Listen: Ok
