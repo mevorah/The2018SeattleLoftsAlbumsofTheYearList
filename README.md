@@ -108,6 +108,7 @@ Every great reggae song has been put on this album. What a tour de force of... r
 
 ## 5/21 XO - Elliot Smith
 * 1st Listen: Pretty good
+* 2nd Listen: Pretty/ very good
 
 ## 5/20 Selected Ambient Works Volume II - Aphex Twin
 * 1st Listen: Ok
