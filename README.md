@@ -8,6 +8,9 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 6/15 Workingman's Dead - Grateful Dead
+* 1st Listen:
+
 ## 6/14 In Utero - Nirvana
 * 1st Listen: Pretty good
 
