@@ -1,8 +1,12 @@
+## Incredible
 1. [The Moon & Antarctica - Mouse (I)](#128-the-moon--antarctica---modest-mouse)
 1. [Aeroplane Over the Sea - Neutral Milk Hotel (I)](#17-in-the-aeroplane-over-the-sea---neutral-milk-hotel)
+
+## Very Good / Incredible
 1. [Kid A - Radiohead (VG/I)](#219-kid-a---radiohead)
 2. [Low - David Bowie (VG/I)](#11-low---david-bowie)
-7. [Joshua Tree - U2 (VG)](#113-joshua-tree---u2)
+
+## Very Good
 1. [Illinois - Sufjan Stevens (VG)](#121-illinois---sufjan-stevens)
 1. [Light Upon The Lake - Whitney (VG)](#311-light-upon-the-lake---whitney)
 7. [Dusk At Cubist Castle - The Olivia Tremor Control (VG)](#317-dusk-at-cubist-castle---the-olivia-tremor-control)
@@ -22,6 +26,9 @@
 4. [The Soft Bulletin - The Flaming Lips (VG)](#319-the-soft-bulletin---the-flaming-lips)
 12. [Trompe Le Monde - Pixies (VG)](#32-trompe-le-monde---pixies)
 13. [Murmur - R.E.M (VG)](#117-murmur---rem)
+7. [Joshua Tree - U2 (VG)](#113-joshua-tree---u2)
+
+## Pretty / Very Good
 7. [The Freewheelin' Bob Dylan - Bob Dylan (PG/VG)](#312-the-freewheelin-bob-dylan---bob-dylan)
 7. [Slanted And Enchanted - Pavement (PG/VG)](#37-slanted-and-enchanted---pavement)
 7. [Rubber Soul - The Beatles (PG/VG)](#428-rubber-soul---the-beatles)
@@ -49,6 +56,8 @@
 10. [Call Me - Al Green (PG/VG)](#130-call-me---al-green)
 13. [Otis Blue Otis Redding Sings Soul - Otis Redding (PG/VG)](#39-otis-blue-otis-redding-sings-soul---otis-redding)
 13. [Station To Station - David Bowie (PG/VG)](#27-station-to-station---david-bowie)
+
+## Pretty Good
 7. [Paul's Boutique - Beastie Boys (PG)](#18-pauls-boutique---beastie-boys)
 7. [XO - Elliot Smith (PG)](#521-xo---elliot-smith)
 14. [Pod - The Breeders (PG)](#414-pod---the-breeders)
@@ -84,6 +93,8 @@
 9. [Cosmo's Factory - Creedence Clearwater Revival (PG)](#28-cosmos-factory---creedence-clearwater-revival)
 12. [The Black Saint And The Sinner Lady - Charles Mingus (PG)](#36-the-black-saint-and-the-sinner-lady---charles-mingus)
 7. [Bitches Brew - Miles Davis (PG)](#212-bitches-brew---miles-davis)
+
+## Ok / Pretty Good
 13. [Who's Next - The Who (Ok/PG)](#323-whos-next---the-who)
 13. [War - U2 (Ok/PG)](#524-war---u2)
 13. [Ready To Die - The Notorious B.I.G. (Ok/PG)](#42-ready-to-die---the-notorious-big)
@@ -101,6 +112,8 @@
 12. [Townes Van Zandt - Townes Van Zandt (Ok/PG)](#419-townes-van-zandt---townes-van-zandt)
 13. [Sunshine Superman - Donovan (Ok/PG)](#220-sunshine-superman---donovan)
 13. [Get Happy - Elvis Costello (Ok/PG)](#124-get-happy---elvis-costello-and-the-attractions)
+
+## Ok
 13. [Mr. Hood - KMD (Ok)](#44-mr-hood---kmd)
 13. [Entertainment! - Gang of Four (Ok)](#48-entertainment---gang-of-four)
 13. [Enter The Wu-Tang - Wu-Tang Clan (Ok)](#41-enter-the-wu-tang---wu-tang-clan)
@@ -130,14 +143,23 @@
 16. [Zen Arcade - Hüsker Du (Ok)](#15-zen-arcade---hüsker-du)
 16. [Red Medicine - Fugazi (Ok)](#328-red-medicine---fugazi)
 16. [Young Team - Mogwai (Ok)](#320-young-team---mogwai)
+
+## Not Great / Ok
 16. [Check Your Head - Beastie Boys (NG/Ok)](#514-check-your-head---beastie-boys)
 16. [Goat - The Jesus Lizard (NG/Ok)](#51-goat---the-jesus-lizard)
 16. [Emperor Tomato Ketchup - Stereolab (NG/OK)](#511-emperor-tomato-ketchup---stereolab)
 12. [Like A Virgin - Madonna (NG/Ok)](#427-like-a-virgin---madonna)
 12. [Aja - Steely Dan (NG/Ok)](#418-aja---steely-dan)
+
+## Not Great
 17. [Rio - Duran Duran (NG)](#213-rio---duran-duran)
 12. [Astral Weeks - Van Morrison (NG)](#410-astral-weeks---van-morrison)
 18. [Everything Falls Apart - Hüsker Du (NG)](#14-everything-falls-apart---hüsker-du)
+
+## Awful / Not Great
+
+## The Worst
+
 <br/>
 <i>(Opacity = Number of Listens)</i>
 <br>
