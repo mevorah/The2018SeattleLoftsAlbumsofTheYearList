@@ -38,6 +38,8 @@
           <ol id="section-ng-list"></ol>
           <h2 id="section-a">Awful</h2>
           <ol id="section-a-list"></ol>
+          <h2 id="section-u">Unknown</h2>
+          <o1 id="section-u-list"></o1>
 
           <!--<ol>
             <li><a href="#r1">hello</a></li>
@@ -78,7 +80,7 @@
 
             //console.log("Heading:" + heading + " albumId:" + albumId + " albumText:" + albumText + " lastListen:" + lastListen);
 
-            if (lastListen.includes("Incredible")) {
+            if (lastListen.includes("Incredible") || lastListen.includes("Amazing")) {
               $("#section-i-list").append(listensItem);
             } else if (lastListen.includes("Very good/ incredible")) {
               $("#section-vgi-list").append(listensItem);
@@ -98,6 +100,8 @@
               $("#section-ng-list").append(listensItem);
             } else if (lastListen.includes("Awful")) {
               $("#section-a-list").append(listensItem);
+            } else if (lastListen.includes("Unknown")) {
+              $("#section-u-list").append(listensItem);
             } else {
               console.error("Couldn't add to list:" + lastListen);
             }

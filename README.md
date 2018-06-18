@@ -625,8 +625,8 @@ The first half of this album is cranked up to 10. Great song writing, tasteful u
 The opening track has Elvis Costello at his worst. What really pulled me in was the guitar on Opportunity, and the Ska-esq bass on The Imposter. By Secondary Modern, vocals have dropped to bearable levels. King Horse brings the entire band onto the same level, opening the rest of the album. Perhaps the first three songs grouped together can be thought of as the intro? This would be plausible, but then comes Possesion, as if starting from the beginnig again.
 
 ## 1/23 Abraxas - Santana
-* 1st Listen: Ok/Pretty good
-* 2nd Listen: Ok/Pretty good
+* 1st Listen: Ok/ pretty good
+* 2nd Listen: Ok/ pretty good
 
 ## 1/22 Rain Dogs - Tom Waits
 * 1st Listen: Pretty good
@@ -648,7 +648,7 @@ The landscapes he paints with his music is extraordinary. The percusion is a hig
 
 ## 1/18 Daydream Nation - Sonic Youth
 * 1st Listen: Pretty good
-* 2nd Listen: Pretty/very good
+* 2nd Listen: Pretty/ very good
 
 On the second listen, finally hear what this album is about - the landscape of dejection and teenage life in the late 80s. To a certain extent some lyrics feel dated. With that said, certain clumsely placed lyrics contribute to the genuiness of some of these songs. Musically this album contains some expansive ideas, all executed by a group that serves as a prime example of what is meant to be a 'tight band'.
 
