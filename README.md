@@ -10,6 +10,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 
 ## 6/18 Signals, Calls and Marches - Mission of Burma
 * 1st Listen: Ok
+* 2nd Listen: Ok
 
 ## 6/17 Sound of Silver - LCD Soundsystem
 * Nth Listen: Pretty/ very good
