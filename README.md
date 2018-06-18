@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 6/18 Signals, Calls and Marches - Mission of Burma
-* 1st Listen:
+* 1st Listen: Ok
 
 ## 6/17 Sound of Silver - LCD Soundsystem
 * Nth Listen: Pretty/ very good
