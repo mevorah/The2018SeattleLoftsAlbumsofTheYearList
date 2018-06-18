@@ -68,9 +68,6 @@
 
     <script>
         $(document).ready(function() { 
-          var c = $('#content').find('h2');
-          console.log(c);
-
 
            $('#content').find('h2').each(function() {
             var heading = $(this).text();
@@ -80,7 +77,7 @@
             var lastListen = $(listenList[listenList.length - 1]).text();
             var listensItem = '<li id="' + albumId + '" >' + albumText + '</li>';
 
-            console.log(lastListen);
+            console.log("Heading:" + heading + " albumId:" + albumId + " albumText:" + albumText + " lastListen:" + lastListen);
 
             if (lastListen.contains("Incredible")) {
               $("#section-i-list").append(listensItem);
