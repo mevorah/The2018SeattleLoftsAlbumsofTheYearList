@@ -68,21 +68,13 @@
 
     <script>
         $(document).ready(function() { 
-          var incredibleAlbums = [];
-          var veryGoodIncredibleAlbums = [];
-          var veryGoodAlbums = [];
-          var prettyVeryGoodAlbums = [];
-          var prettyGoodAlbums = [];
-          var okPrettyGoodAlbums = [];
-          var okAlbums = [];
-          var notGreatOkAlbums = [];
-          var notGreatAlbums = [];
-
-          var albumHeadings = $('#content');
-
           console.log(albumHeadings);
 
-          albumHeadings.find('h2').each(function() {
+          var c = $('#content').find('h2');
+          console.log(c);
+
+
+           $('#content').find('h2').each(function() {
             var heading = $(this).text();
             var albumId = $(this).attr('id');
             var albumText = heading.substring(heading.indexOf(' ') + 1, heading.length);
@@ -113,7 +105,7 @@
             } else {
               console.log("Couldn't add to list:" + lastListen);
             }
-            
+
           });
 
 
