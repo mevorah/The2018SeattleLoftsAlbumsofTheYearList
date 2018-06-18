@@ -76,7 +76,7 @@
             var lastListen = $(listenList[listenList.length - 1]).text();
             var listensItem = '<li id="' + albumId + '" >' + albumText + '</li>';
 
-            console.log("Heading:" + heading + " albumId:" + albumId + " albumText:" + albumText + " lastListen:" + lastListen);
+            //console.log("Heading:" + heading + " albumId:" + albumId + " albumText:" + albumText + " lastListen:" + lastListen);
 
             if (lastListen.includes("Incredible")) {
               $("#section-i-list").append(listensItem);
@@ -99,7 +99,7 @@
             } else if (lastListen.includes("Awful")) {
               $("#section-a-list").append(listensItem);
             } else {
-              console.log("Couldn't add to list:" + lastListen);
+              console.error("Couldn't add to list:" + lastListen);
             }
 
           });
