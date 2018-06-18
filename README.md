@@ -728,8 +728,8 @@ Production has aged very well. Every song is a standout. Phenomenal arrangement,
 
 ## 1/1 Low - David Bowie
  * 1st Listen: Very good
- * 2nd Listen: Very good/ Amazing
- * 3rd Listen (3/16): Very good/ Incredible
+ * 2nd Listen: Very good/ amazing
+ * 3rd Listen (3/16): Very good/ incredible
 
 Only one single if any - Sound and Vision. Otherwise the album lives only as a whole - tracking Bowies progression from addiction to the next phase in his career.
 
