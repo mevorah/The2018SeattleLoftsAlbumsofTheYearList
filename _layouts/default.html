@@ -39,7 +39,9 @@
           <h2 id="section-a">Awful</h2>
           <ol id="section-a-list"></ol>
           <h2 id="section-u">Unknown</h2>
-          <o1 id="section-u-list"></o1>
+          <ol id="section-u-list"></ol>
+          <br>
+          <div id="num-albums"></div>
 
           <!--<ol>
             <li><a href="#r1">hello</a></li>
@@ -68,7 +70,9 @@
     <script src="{{ '/assets/js/scale.fix.js' | relative_url }}"></script>
 
     <script>
+
         $(document).ready(function() { 
+           var numAlbums = 0;
 
            $('#content').find('h2').each(function() {
             var heading = $(this).text();
@@ -76,7 +80,7 @@
             var albumText = heading.substring(heading.indexOf(' ') + 1, heading.length);
             var listenList = $(this).next('ul').children();
             var lastListen = $(listenList[listenList.length - 1]).text();
-            var listensItem = '<li id="' + albumId + '" >' + albumText + '</li>';
+            var listensItem = '<li><a href="#' + albumId + '" >' + albumText + '</a></li>';
 
             //console.log("Heading:" + heading + " albumId:" + albumId + " albumText:" + albumText + " lastListen:" + lastListen);
 
@@ -103,8 +107,10 @@
             } else if (lastListen.includes("Unknown")) {
               $("#section-u-list").append(listensItem);
             } else {
+              numListens--;
               console.error("Couldn't add to list:" + albumText + " lastlisten:" + lastListen);
             }
+            numListens++;
 
           });
 
