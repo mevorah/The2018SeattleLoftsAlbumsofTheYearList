@@ -111,6 +111,34 @@
               console.error("Couldn't add to list:" + albumText + " lastlisten:" + lastListen);
             }
             numAlbums++;
+
+            $('#num-albums').text(numAlbums + "/365");
+          });
+
+
+          var listItems = $('#list').find('a').each(function() {
+            var link = $(this);
+            var url = link.attr('href');
+            var correspondingHeader = $('#content').find(url);
+            var listenList = correspondingHeader.next().find('li');
+
+
+            var containsNth = false;
+            $(listenList).each(function() {
+              var bulletText = $(this).text();
+              if (bulletText.includes('Nth')) {
+                containsNth = true;
+              }
+            });
+
+            //var numListensText = containsNth ?  'N' : listenList.length;
+            //link.text(link.text() + ' - ' + numListensText);
+
+            var maxListens = 5;
+            var minOpacacity = .25;
+            var numListens = containsNth ? maxListens : listenList.length;
+            var opacity = ((1 - minOpacacity) * (numListens / maxListens)) + minOpacacity;
+            link.css('opacity', opacity);
           });
         });
     </script>
