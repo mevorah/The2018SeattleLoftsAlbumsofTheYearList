@@ -8,6 +8,15 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 6/18 Signals, Calls and Marches - Mission of Burma
+* 1st Listen:
+
+## 6/17 Sound of Silver - LCD Soundsystem
+* Nth Listen: Pretty/ very good
+
+## 6/16 From A Basement On The Hill - Elliot Smith
+* 1st Listen: Ok/ pretty good
+
 ## 6/15 Workingman's Dead - Grateful Dead
 * 1st Listen: Ok/ pretty good
 
