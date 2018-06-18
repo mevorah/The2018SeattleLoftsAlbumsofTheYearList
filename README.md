@@ -435,7 +435,7 @@ More tolerable than free form jazz - Mingus actually has a composition he's work
 * 3rd Listen: Pretty/ very good
 
 ## 3/3 Smiley Smile - Beach Boys
-* 1st/ 2nd Listen: OK/ pretty good
+* 1st/ 2nd Listen: Ok/ pretty good
 
 *Good Vibrations* is amazing, but the rest of the album leaves a lot to be desired after Pet Sounds. Some tracks are needlessly obscure (She's Goin Bald), others range between ok and pretty good. *Ok/ pretty good*.
 
