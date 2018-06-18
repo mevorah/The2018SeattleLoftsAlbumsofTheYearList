@@ -16,6 +16,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 
 ## 6/16 From A Basement On The Hill - Elliot Smith
 * 1st Listen: Ok/ pretty good
+* 2nd Listen: Pretty good
 
 ## 6/15 Workingman's Dead - Grateful Dead
 * 1st Listen: Ok/ pretty good
