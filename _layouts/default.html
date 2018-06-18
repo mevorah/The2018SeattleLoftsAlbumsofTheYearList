@@ -92,39 +92,28 @@
 
             console.log(lastListen);
 
-            switch(lastListen) {
-              case "Incredible":
-                $("#section-i-list").append(listensItem);
-                break;
-              case "Very good/ incredible":
-                $("#section-vgi-list").append(listensItem);
-                break;
-              case "Very good":
-                $("#section-vg-list").append(listensItem);
-                break;
-              case "Pretty/ very good":
-                $("#section-pvg-list").append(listensItem);
-                break;
-              case "Pretty good":
-                $("#section-pg-list").append(listensItem);
-                break;
-              case "Ok/ pretty good":
-                $("#section-okpg-list").append(listensItem);
-                break;
-              case "Ok":
-                $("#section-ok-list").append(listensItem);
-                break;
-              case "Not great/ ok":
-                $("#section-ngok-list").append(listensItem);
-                break;
-              case "Not great":
-                $("#section-ng-list").append(listensItem);
-                break;
-              default:
-                //code block
-                console.log("Couldn't add to list:" + lastListen);
+            if (lastListen.contains("Incredible")) {
+              $("#section-i-list").append(listensItem);
+            } else if (lastListen.contains("Very good/ incredible")) {
+              $("#section-vgi-list").append(listensItem);
+            } else if (lastListen.contains("Very good")) {
+              $("#section-vg-list").append(listensItem);
+            } else if (lastListen.contains("Pretty/ very good")) {
+              $("#section-pvg-list").append(listensItem);
+            } else if (lastListen.contains("Pretty good")) {
+              $("#section-pg-list").append(listensItem);
+            } else if (lastListen.contains("Ok/ pretty good")) {
+              $("#section-okpg-list").append(listensItem);
+            } else if (lastListen.contains("Ok")) {
+              $("#section-ok-list").append(listensItem);
+            } else if (lastListen.contains("Not great/ ok")) {
+              $("#section-ngok-list").append(listensItem);
+            } else if (lastListen.contains("Not great")) {
+              $("#section-ng-list").append(listensItem);
+            } else {
+              console.log("Couldn't add to list:" + lastListen);
             }
-
+            
           });
 
 
