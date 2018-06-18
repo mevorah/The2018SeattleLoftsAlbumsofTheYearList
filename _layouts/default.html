@@ -18,7 +18,9 @@
         <h1>The SeattleLofts 2018 Album List</h1>
         <p><strong><a href="/">SeattleLofts</a></strong></p>
         <div id="list">
-          
+<!--          {% capture list %}{% include List.md %}{% endcapture %} -->
+<!--          {{ list | markdownify }} -->
+
           <h1 id="section-i">Incredible</h1>
           <ul id="section-i-list"></ul>
           <h1 id="section-vgi">Very Good / Incredible</h1>
@@ -77,23 +79,23 @@
 
             console.log("Heading:" + heading + " albumId:" + albumId + " albumText:" + albumText + " lastListen:" + lastListen);
 
-            if (lastListen.contains("Incredible")) {
+            if (lastListen.includes("Incredible")) {
               $("#section-i-list").append(listensItem);
-            } else if (lastListen.contains("Very good/ incredible")) {
+            } else if (lastListen.includes("Very good/ incredible")) {
               $("#section-vgi-list").append(listensItem);
-            } else if (lastListen.contains("Very good")) {
+            } else if (lastListen.includes("Very good")) {
               $("#section-vg-list").append(listensItem);
-            } else if (lastListen.contains("Pretty/ very good")) {
+            } else if (lastListen.includes("Pretty/ very good")) {
               $("#section-pvg-list").append(listensItem);
-            } else if (lastListen.contains("Pretty good")) {
+            } else if (lastListen.includes("Pretty good")) {
               $("#section-pg-list").append(listensItem);
-            } else if (lastListen.contains("Ok/ pretty good")) {
+            } else if (lastListen.includes("Ok/ pretty good")) {
               $("#section-okpg-list").append(listensItem);
-            } else if (lastListen.contains("Ok")) {
+            } else if (lastListen.includes("Ok")) {
               $("#section-ok-list").append(listensItem);
-            } else if (lastListen.contains("Not great/ ok")) {
+            } else if (lastListen.includes("Not great/ ok")) {
               $("#section-ngok-list").append(listensItem);
-            } else if (lastListen.contains("Not great")) {
+            } else if (lastListen.includes("Not great")) {
               $("#section-ng-list").append(listensItem);
             } else {
               console.log("Couldn't add to list:" + lastListen);
