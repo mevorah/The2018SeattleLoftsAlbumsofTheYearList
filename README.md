@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 6/19 A Night At The Opera - Queen
-* 1st Listen:
+* 1st Listen: Ok/ pretty good
 
 ## 6/18 Signals, Calls and Marches - Mission of Burma
 * 1st Listen: Ok
@@ -193,6 +193,7 @@ The first handful of songs are incredible. Unfortunately, the rest feels like mo
 * 1st Listen: Pretty good
 * 2nd Listen: Pretty/ very good
 * 3rd Listen: Pretty/ very good
+* 4th Listen: Very good
 
 ## 5/1 Goat - The Jesus Lizard
 * 1st Listen: Not great/ ok
