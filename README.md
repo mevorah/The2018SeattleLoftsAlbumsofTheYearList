@@ -553,6 +553,7 @@ But honestly, how do you rate such an album. It's clear that this album is great
 
 ## 2/11 More Songs About Buildings And Food - Talking Heads
 * 1st Listen: Unknown
+* 2nd Listen: Pretty/ very good
 
 ## 2/10 Odelay - Beck
 * Nth Listen: Very good/ Amazing
