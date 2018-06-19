@@ -563,6 +563,7 @@ I love this album. Perhaps the perfect backdrop for a summer house party.
 ## 2/9 Another Green World - Brian Eno
 * 1st Listen: Pretty/ very good
 * 2nd Listen (Same Day): Pretty/ very good
+* 3rd Listen: Pretty good
 
 ## 2/8 Cosmo's Factory - Creedence Clearwater Revival
 * 1st Listen: Pretty good
