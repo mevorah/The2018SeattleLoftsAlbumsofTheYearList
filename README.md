@@ -8,6 +8,9 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 6/20 Dark Side of the Moon - Pink Floyd
+* 1st Listen:
+
 ## 6/19 A Night At The Opera - Queen
 * 1st Listen: Ok/ pretty good
 
