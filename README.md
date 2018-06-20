@@ -721,6 +721,7 @@ Production has aged very well. Every song is a standout. Phenomenal arrangement,
 
 ## 1/10 Graceland - Paul Simon
 * 1st Listen: Pretty good
+* 2nd Listen: Pretty good
 
 ## 1/9 Scary Monsters- David Bowie
 * 1st Listen: Pretty good
