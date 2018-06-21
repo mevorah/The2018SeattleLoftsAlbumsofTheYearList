@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 6/21 Nilsson Schmilsson - Harry Nilsson
-* 1st Listen:
+* 1st Listen: Ok/ pretty good
 
 ## 6/20 Dark Side of the Moon - Pink Floyd
 * 1st Listen: Pretty/ very good
