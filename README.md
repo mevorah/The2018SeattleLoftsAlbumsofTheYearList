@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 6/22 Superunknown - Soundgarden
-* 1st Listen:
+* 1st Listen: Not great/ ok
 
 ## 6/21 Nilsson Schmilsson - Harry Nilsson
 * 1st Listen: Ok/ pretty good
@@ -230,6 +230,7 @@ On first listen, The Clash appear my rhythmically vaired than The Ramones, and m
 ## 4/25 Power, Corruption & Lies - New Order
 * 1st Listen: Ok
 * 2nd Listen: Ok
+* 3rd Listen: Pretty good
 
 ## 4/24 Exile In Guyville - Liz Phair
 * 1st Listen: Not great
