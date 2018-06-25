@@ -12,7 +12,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 * 1st Listen: Very good/ incredible
 
 ## 6/24 Let It Be - The Beatles
-* 1st Listen:
+* 1st Listen: Pretty/ very good
 
 ## 6/23 Abbey Road - The Beatles
 * 1st Listen: Very good/ incredible
