@@ -8,10 +8,16 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
-## 6/23 Abbey Road - The Beatles
+## 6/25 St. Pepper's Lonely Hearts Club Band - The Beatles
 * 1st Listen:
 
-So many amazing songs, but it feels like a mix tape. Fortunately the quality more than makes up for the flow.
+## 6/24 Let It Be - The Beatles
+* 1st Listen:
+
+## 6/23 Abbey Road - The Beatles
+* 1st Listen: Very good/ incredible
+
+So many amazing songs, but it feels like a mix tape.. until the very end.
 
 ## 6/22 Superunknown - Soundgarden
 * 1st Listen: Not great/ ok
