@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 6/25 St. Pepper's Lonely Hearts Club Band - The Beatles
-* 1st Listen:
+* 1st Listen: Very good/ incredible
 
 ## 6/24 Let It Be - The Beatles
 * 1st Listen:
