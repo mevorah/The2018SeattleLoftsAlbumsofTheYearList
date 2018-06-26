@@ -8,6 +8,9 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 6/26 #1 Record - Big Star
+* 1st Listen:
+
 ## 6/25 St. Pepper's Lonely Hearts Club Band - The Beatles
 * 1st Listen: Very good/ incredible
 
