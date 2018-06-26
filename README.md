@@ -66,7 +66,8 @@ So many amazing songs, but it feels like a mix tape.. until the very end.
 ## 6/9 Sailing The Seas Of Cheese - Primus
 * 1st Listen: Not great/ ok
 
-## 6/8 
+## 6/8 Pink Moon - Nick Drake
+* 1st Listen: Ok/ pretty good
 
 ## 6/7 Songs of Leonard Cohen - Leonard Cohen
 * 1st Listen: Ok/ pretty good
