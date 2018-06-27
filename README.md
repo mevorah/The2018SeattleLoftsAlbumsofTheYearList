@@ -94,6 +94,7 @@ Paul McCartney opens up with two huge songs. The rest of the album is spent dipp
 ## 6/3 Fakebook - Yo La Tengo
 * 1st Listen: Ok/ pretty good
 * 2nd Listen: Ok/ pretty good
+* 3rd Listen: Pretty good
 
 ## 6/2 Keep It Like A Secret - Built To Spill
 * Nth Listen: Pretty/ very good
