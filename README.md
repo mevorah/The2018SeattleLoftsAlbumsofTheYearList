@@ -331,7 +331,7 @@ On second listen, I could barely get through. The songs all sound the same in. W
 * 2nd Listen: Pretty good
 * 3rd Listen: Pretty/ very good
 * 4th Listen: Very good
-* 5th Listen: Pretty/ very good
+* 5th Listen: Very good
 
 This album is quantity and quality. When I thought I had rediscovered all of those songs I had once heard in passing as a child, I came upon this album (Motor Away). The flawless first half makes up for the more challenging second. Very good.
 
