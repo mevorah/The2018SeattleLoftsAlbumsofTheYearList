@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 6/28 Up On The Sun - Meat Puppets
-* 1st Listen:
+* 1st Listen: Ok
 
 ## 6/27 Master of Puppets - Metallica
 * 1st Listen: Ok/ pretty good
@@ -477,6 +477,7 @@ Should I ever be stranded in dire circumstances, I only hope I have this album -
 ## 3/7 Slanted And Enchanted - Pavement
 * 1st Listen: Pretty good
 * 2nd Listen: Pretty/ very good
+* 3rd Listen: Very good
 
 ## 3/6 The Black Saint And The Sinner Lady - Charles Mingus
 * 1st Listen: Pretty good
