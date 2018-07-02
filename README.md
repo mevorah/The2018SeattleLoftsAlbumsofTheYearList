@@ -8,6 +8,13 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 7/2 Yankee Hotel Foxtrot - Wilco
+* Nth Listen: Incredible
+
+## 7/1
+
+## 6/30
+
 ## 6/29 New Moon - Elliot Smith
 * 1st Listen:
 
