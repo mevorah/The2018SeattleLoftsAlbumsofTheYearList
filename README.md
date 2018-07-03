@@ -19,7 +19,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 ## 6/30
 
 ## 6/29 New Moon - Elliot Smith
-* 1st Listen:
+* 1st Listen: Ok/ pretty good
 
 ## 6/28 Up On The Sun - Meat Puppets
 * 1st Listen: Ok
