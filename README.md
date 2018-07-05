@@ -327,6 +327,7 @@ Like Springsteen, once you get over the cheesiness, the music is verrry good.
 * 1st Listen: Ok
 * 2nd Listen: Ok
 * 3rd Listen: Ok/ pretty good
+* 4th Listen: Pretty/ very good
 
 The guy's singing is unbelievable! With that said, there were few songs that actually hooked me.
 
