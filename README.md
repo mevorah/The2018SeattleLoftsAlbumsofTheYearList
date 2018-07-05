@@ -332,6 +332,9 @@ The guy's singing is unbelievable! With that said, there were few songs that act
 
 ## 4/12 Ramones - Ramones
 * 1st Listen: Ok/ pretty good
+* 2nd Listen: Pretty good
+
+This album is upbeat, but wow how every song sounds the same. Great for starting your day, but nothing that is truly amazing.
 
 ## 4/11 American Water - Silver Jews
 * 1st Listen: Pretty (very?) good
