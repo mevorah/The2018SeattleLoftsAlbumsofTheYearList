@@ -322,6 +322,7 @@ Like Springsteen, once you get over the cheesiness, the music is verrry good.
 * 1st Listen: Ok/ Pretty good
 * 2nd Listen: Pretty good
 * 3rd Listen: Pretty good
+* 4th Listen: Pretty/ very good
 
 ## 4/13 Grace - Jeff Buckley
 * 1st Listen: Ok
