@@ -14,7 +14,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 ## 7/4
 
 ## 7/3 For Your Pleasure - Roxy Music
-* 1st Listen:
+* 1st Listen: Not great/ ok
 
 ## 7/2 Yankee Hotel Foxtrot - Wilco
 * Nth Listen: Incredible
