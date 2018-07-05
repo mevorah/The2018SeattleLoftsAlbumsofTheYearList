@@ -8,13 +8,19 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 7/5 Second Edition - Public Image Ltd.
+* 1st Listen: Not great
+
+## 7/4
+
 ## 7/3 For Your Pleasure - Roxy Music
 * 1st Listen:
 
 ## 7/2 Yankee Hotel Foxtrot - Wilco
 * Nth Listen: Incredible
 
-## 7/1
+## 7/1 Yoshimi Battles The Pink Robots - The Flaming Lips
+* 1st Listen: Pretty/ very good
 
 ## 6/30
 
