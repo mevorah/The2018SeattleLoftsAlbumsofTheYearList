@@ -234,6 +234,7 @@ This album is in the mix. The tonality is inventive. Unfortunately, the lyrics a
 * 1st Listen: Ok/ pretty good
 * 2nd Listen: Pretty good
 * 3rd Listen: Pretty good
+* 4th Listen: Pretty/ very good
 
 ## 5/5 
 
