@@ -8,6 +8,12 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 7/8 The Glow, Pt. 2 - The Microphones
+* 1st Listen:
+
+## 7/7 The Gorillaz - The Gorrilaz
+* Nth Listen: Pretty good
+
 ## 7/6 Dirty Mind - Prince
 * 1st Listen: Ok
 
