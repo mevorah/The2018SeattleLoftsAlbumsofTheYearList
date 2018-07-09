@@ -261,6 +261,7 @@ The first handful of songs are incredible. Unfortunately, the rest feels like mo
 * 2nd Listen: Pretty/ very good
 * 3rd Listen: Pretty/ very good
 * 4th Listen: Very good
+* 5th Listen: Very good
 
 ## 5/1 Goat - The Jesus Lizard
 * 1st Listen: Not great/ ok
