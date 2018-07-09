@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 7/9 Hissing Fauna, Are You The Destroyer? - of Montreal
-* 1st Listen:
+* 1st Listen: Ok/ pretty good
 
 ## 7/8 The Glow, Pt. 2 - The Microphones
 * 1st Listen:
@@ -396,6 +396,7 @@ This album is quantity and quality. When I thought I had rediscovered all of tho
 
 ## 4/3 Illmatic - Nas
 * 1st Listen: Ok/ Pretty good
+* 2nd Listen: Pretty good
 
 ## 4/2 Ready To Die - The Notorious B.I.G.
 * 1st Listen: Ok
