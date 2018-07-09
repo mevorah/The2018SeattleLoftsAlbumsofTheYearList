@@ -35,7 +35,8 @@ There are certainly albums on this list that I've listened to countless (n) time
 ## 7/1 Yoshimi Battles The Pink Robots - The Flaming Lips
 * 1st Listen: Pretty/ very good
 
-## 6/30
+## 6/30 To Record Only Water For Ten Days - John Frusciante
+* 1st Listen: Ok/ pretty good
 
 ## 6/29 New Moon - Elliot Smith
 * 1st Listen: Ok/ pretty good
