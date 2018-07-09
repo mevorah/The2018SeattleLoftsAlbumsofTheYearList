@@ -36,7 +36,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 * 1st Listen: Pretty/ very good
 
 ## 6/30 To Record Only Water For Ten Days - John Frusciante
-* 1st Listen: Ok/ pretty good
+* 1st Listen: Ok
 
 ## 6/29 New Moon - Elliot Smith
 * 1st Listen: Ok/ pretty good
