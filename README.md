@@ -8,6 +8,9 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 7/10 Iaora Tahiti - Mouse On Mars
+* 1st Listen:
+
 ## 7/9 Hissing Fauna, Are You The Destroyer? - of Montreal
 * 1st Listen: Ok/ pretty good
 
@@ -428,8 +431,9 @@ Modern and vulnerable - it's amazing that this album was made when it was. Maybe
 
 ## 3/26 Ladies & Gentlemen We Are Floating In Space - Spiritualized
 * 1st Listen: Pretty good
+* 2nd Listen: Pretty good
 
-The commonalities between this and the Gorillaz is unmistakable. Com'on Damon!
+The commonalities between this and the Gorillaz is unmistakable. Com'on Damon! 
 
 ## 3/25 Unknown Pleasures - Joy Division
 * 1st Listen: Ok
