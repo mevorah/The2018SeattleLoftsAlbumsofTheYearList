@@ -258,6 +258,7 @@ The first handful of songs are incredible. Unfortunately, the rest feels like mo
 ## 5/3 Screamadelica - Primal Scream
 * 1st Listen: Ok
 * 2nd Listen: Ok
+* 3rd Listen: Pretty good
 
 ## 5/2 Perfect From Now On - Built To Spill
 * 1st Listen: Pretty good
