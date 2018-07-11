@@ -689,10 +689,9 @@ So many influences and deadpan lyrics, and so much musical variety - this album 
 * 3rd Listen: Pretty good
 * 4th Listen: Very good
 * 5th Listen: Very good
+* 6th Listen: Very good
 
-So many instruments going. Super upbeat. Thoroughly enjoyable blues. With that said, only a handful of songs really stand out - there is a uniformity across the album.
-
-Forget what I said, there is certainly variety on this album. It's pretty good!
+So many instruments going. Super upbeat. Thoroughly enjoyable.
 
 ## 2/1 Q: Are We Not Men? A: We Are Devo! - Devo
 * 1st Listen: Ok/ pretty good
