@@ -8,8 +8,11 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 7/11 Back In Black - ACDC
+* 1st Listen: Ok
+
 ## 7/10 Iaora Tahiti - Mouse On Mars
-* 1st Listen:
+* 1st Listen: Not great/ ok
 
 ## 7/9 Hissing Fauna, Are You The Destroyer? - of Montreal
 * 1st Listen: Ok/ pretty good
