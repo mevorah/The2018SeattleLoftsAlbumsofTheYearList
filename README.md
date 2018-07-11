@@ -244,7 +244,8 @@ This album is in the mix. The tonality is inventive. Unfortunately, the lyrics a
 * 1st Listen: Ok/ pretty good
 
 ## 5/7 Double Nickels On The Dime - Minutemen
-* 4th or 5th Listen: Pretty good
+* 1st Listen: Pretty good
+* 2nd Listen: Pretty good
 
 ## 5/6 You're Living All Over Me - Dinosaur Jr.
 * 1st Listen: Ok/ pretty good
