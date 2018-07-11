@@ -237,6 +237,7 @@ You can feel the energy.. even when standing at your desk. I think that's the po
 
 ## 5/9 Bubble & Scrape - Sebadoh
 * 1st Listen: Ok
+* 2nd Listen: Pretty good
 
 This album is in the mix. The tonality is inventive. Unfortunately, the lyrics are at times lacking.
 
