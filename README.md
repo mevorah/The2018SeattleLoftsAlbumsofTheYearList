@@ -30,7 +30,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 * 1st Listen: Ok/ pretty good
 
 ## 7/8 The Glow, Pt. 2 - The Microphones
-* 1st Listen:
+* 1st Listen: Pretty good
 
 ## 7/7 The Gorillaz - The Gorrilaz
 * Nth Listen: Pretty good
