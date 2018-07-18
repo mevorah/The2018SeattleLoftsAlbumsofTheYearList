@@ -684,6 +684,7 @@ I love this album. Perhaps the perfect backdrop for a summer house party.
 
 ## 2/7 Station To Station - David Bowie
 * 1st Listen: Pretty/ very good
+* 2nd Listen: Pretty/ very good
 
 ## 2/6 Paul Simon - Paul Simon
 * 1st Listen: Very good
