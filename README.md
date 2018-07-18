@@ -749,6 +749,9 @@ The first half of this album is cranked up to 10. Great song writing, tasteful u
 * 1st Listen: Ok/ pretty good
 * 2nd Listen: Pretty good
 * 3rd Listen: Pretty good
+* 4th Listen: Pretty/ very good
+
+So many catchy songs on this angry album.
 
 ## 1/24 Get Happy - Elvis Costello And The Attractions
 * 1st Listen: Ok/ pretty good
