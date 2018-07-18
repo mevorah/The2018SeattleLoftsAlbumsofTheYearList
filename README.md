@@ -787,6 +787,7 @@ On the second listen, finally hear what this album is about - the landscape of d
 * 1st Listen: Pretty good
 * 2nd Listen: Pretty good
 * 3rd Listen: Very good
+* 4th Listen (7-18): Pretty/ very good
 
 There is no doubt that this is a great album with excellent song writing.. but god damn does the production feel dated, as though firmly stuck in the era of 80's dad-rock.
 
