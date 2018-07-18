@@ -8,6 +8,9 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 7/18 Suicide - Suicide
+* 1st Listen: Ok
+
 ## 7/17 Surfer Rosa - Pixies
 * 1st Listen: Pretty good
 
@@ -685,6 +688,7 @@ I love this album. Perhaps the perfect backdrop for a summer house party.
 ## 2/6 Paul Simon - Paul Simon
 * 1st Listen: Very good
 * 2nd Listen: Pretty/ very good
+* 3rd Listen: Pretty/ very good
 
 Fantastic songs, Paul Simon's voice is incredible - surely an influence on Elliot Smith. Upon the second listen, the lyrics were lacking in a handfull of songs. Third listen will tell.
 
