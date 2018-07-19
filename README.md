@@ -38,6 +38,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 ## 7/9 Hissing Fauna, Are You The Destroyer? - of Montreal
 * 1st Listen: Ok/ pretty good
 * 2nd Listen: Ok/ pretty good
+* 3rd Listen: Pretty good
 
 ## 7/8 The Glow, Pt. 2 - The Microphones
 * 1st Listen: Pretty good
