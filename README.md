@@ -24,7 +24,8 @@ There are certainly albums on this list that I've listened to countless (n) time
 * 1st Listen: Ok/ pretty good
 * 2nd Listen: Ok/ pretty good
 
-## 7/15
+## 7/15 Ratatat - Ratatat
+* 1st Listen: Pretty/ very good
 
 ## 7/14
 
