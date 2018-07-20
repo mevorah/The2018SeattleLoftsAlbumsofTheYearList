@@ -22,6 +22,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 
 ## 7/16 Document - REM
 * 1st Listen: Ok/ pretty good
+* 2nd Listen: Ok/ pretty good
 
 ## 7/15
 
@@ -30,7 +31,6 @@ There are certainly albums on this list that I've listened to countless (n) time
 ## 7/13
 
 ## 7/12 
-* 1st Listen: 
 
 ## 7/11 Back In Black - ACDC
 * 1st Listen: Ok
