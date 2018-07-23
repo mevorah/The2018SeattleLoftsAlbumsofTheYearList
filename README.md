@@ -460,6 +460,7 @@ This album is quantity and quality. When I thought I had rediscovered all of tho
 ## 3/30 Modern Lovers - Modern Lovers
 * 1st Listen: Pretty good
 * 2nd Listen: Pretty good
+* 3rd Listen: Pretty good
 
 Modern and vulnerable - it's amazing that this album was made when it was. Maybe things haven't really changed in the last 40 years for twenty-something-year-olds.
 
