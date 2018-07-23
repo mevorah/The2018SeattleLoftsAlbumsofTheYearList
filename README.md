@@ -38,7 +38,8 @@ There are certainly albums on this list that I've listened to countless (n) time
 
 ## 7/13
 
-## 7/12 
+## 7/12 Black Foliage: Animation Music - The Olivia Tremor Control
+* 1st Listen:
 
 ## 7/11 Back In Black - ACDC
 * 1st Listen: Ok
