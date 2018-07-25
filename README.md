@@ -8,6 +8,11 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 7/25 Being There - Wilco
+* 1st Listen:
+
+## 7/24
+
 ## 7/23 The Low End Theory - A Tribe Called Quest
 * 1st Listen: Ok/ pretty good
 
