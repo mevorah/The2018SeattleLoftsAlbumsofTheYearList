@@ -8,8 +8,13 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 7/26 Mars Audiac Quintet - Stereolab
+* 1st Listen: Ok
+
+I want to love them - but how one dimensional!
+
 ## 7/25 Being There - Wilco
-* 1st Listen:
+* 1st Listen: Ok/ pretty good
 
 ## 7/24
 
@@ -39,7 +44,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 ## 7/15 Ratatat - Ratatat
 * 1st Listen: Pretty/ very good
 
-## 7/14
+## 7/14 
 
 ## 7/13
 
