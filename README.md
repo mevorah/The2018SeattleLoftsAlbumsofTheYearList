@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 7/27 Fun Trick Noisemaker - The Apples In Stereo
-* 1st Listen: Pretty good
+* 1st Listen (7-27): Pretty good
 
 ## 7/26 Mars Audiac Quintet - Stereolab
 * 1st Listen: Ok
