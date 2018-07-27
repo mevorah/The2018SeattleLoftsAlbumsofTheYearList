@@ -66,6 +66,7 @@ I want to love them - but how one dimensional!
 * 2nd Listen: Ok/ pretty good
 * 3rd Listen: Pretty good
 * 4th Listen: Pretty/ very good
+* 5th Listen (7-27): Very good
 
 ## 7/8 The Glow, Pt. 2 - The Microphones
 * 1st Listen: Pretty good
