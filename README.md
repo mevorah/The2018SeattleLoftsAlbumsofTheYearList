@@ -23,7 +23,7 @@ I want to love them - but how one dimensional!
 
 ## 7/22
 
-## 7/21
+## 7/21 
 
 ## 7/20 Skylarking - XTC
 * 1st Listen: Ok/ pretty good
@@ -46,10 +46,11 @@ I want to love them - but how one dimensional!
 
 ## 7/14 
 
-## 7/13
+## 7/13 Me Against The World - 2Pac
+* 1st Listen: Ok
 
 ## 7/12 Black Foliage: Animation Music - The Olivia Tremor Control
-* 1st Listen:
+* 1st Listen: Pretty good
 
 ## 7/11 Back In Black - ACDC
 * 1st Listen: Ok
