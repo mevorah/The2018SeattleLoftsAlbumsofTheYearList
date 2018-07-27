@@ -191,6 +191,9 @@ Paul McCartney opens up with two huge songs. The rest of the album is spent dipp
 * 1st Listen: Ok/ pretty good
 * 2nd Listen: Ok/ pretty good
 * 3rd Listen: Pretty good
+* 4th Listen (7-27): Pretty good
+
+What a mixed bag. So hard to rate such an album.. but pretty good.
 
 ## 6/2 Keep It Like A Secret - Built To Spill
 * Nth Listen: Pretty/ very good
