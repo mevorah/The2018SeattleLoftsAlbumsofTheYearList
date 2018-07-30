@@ -8,6 +8,14 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 7/30 Homogenic - Bjork
+* 1st Listen:
+
+## 7/29
+
+## 7/28 Vampire Weekend - Vampire Weekend
+* Nth Listen: Pretty/ very good
+
 ## 7/27 Fun Trick Noisemaker - The Apples In Stereo
 * 1st Listen (7-27): Pretty good
 
