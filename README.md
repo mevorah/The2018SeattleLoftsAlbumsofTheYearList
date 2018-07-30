@@ -309,6 +309,11 @@ This album is in the mix. The tonality is inventive. Unfortunately, the lyrics a
 ## 5/7 Double Nickels On The Dime - Minutemen
 * 1st Listen: Pretty good
 * 2nd Listen: Pretty good
+* 3rd Listen: Pretty/ very good
+
+You have to realize that it's a lot - over an hour long is tough. Once digested, there's a lot of greatness in this album - Mile Watt's bass is prominent throughout. The main attraction is D Boone's guitar work - treble turned to 11, funk strumming, and imperfect shredding. The album feels like summer - but not beach summer. It has the feeling of roadtrip/ errand summer in the 85 degree heat where a cloud of brown dust kicks up as a pickup truck drives away as you wait for your shitty 85' (insert car name) to fill up.
+
+With the over saturation of the beach summer music, Double Nickels On The Dime comes welcomed with arms wide open.
 
 ## 5/6 You're Living All Over Me - Dinosaur Jr.
 * 1st Listen: Ok/ pretty good
