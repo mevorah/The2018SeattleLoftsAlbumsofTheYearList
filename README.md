@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 7/31 Freak Out! - Frank Zappa
-* 1st Listen:
+* 1st Listen: Ok
 
 ## 7/30 Homogenic - Bjork
 * 1st Listen: Ok
@@ -117,6 +117,7 @@ I want to love them - but how one dimensional!
 
 ## 6/26 #1 Record - Big Star
 * 1st Listen: Pretty good
+* 2nd Listen: Pretty good
 
 ## 6/25 St. Pepper's Lonely Hearts Club Band - The Beatles
 * 1st Listen: Very good/ incredible
