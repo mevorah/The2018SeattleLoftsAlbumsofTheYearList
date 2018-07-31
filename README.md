@@ -323,7 +323,7 @@ With the over saturation of the beach summer music, Double Nickels On The Dime c
 * 5th Listen: Pretty/ very good
 
 ## 5/5 This Is Happening - LCD Soundsystem
-* Nth Listh: Pretty good
+* Nth Listen: Pretty good
 
 ## 5/4 Saturday Night Fever - Various
 * 1st Listen: Ok
