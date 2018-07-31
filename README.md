@@ -8,8 +8,11 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
-## 7/30 Homogenic - Bjork
+## 7/31 Freak Out! - Frank Zappa
 * 1st Listen:
+
+## 7/30 Homogenic - Bjork
+* 1st Listen: Ok
 
 ## 7/29
 
