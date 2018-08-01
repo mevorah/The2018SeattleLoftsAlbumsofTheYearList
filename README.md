@@ -8,6 +8,9 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 8/1 Tim - The Replacements
+* 1st Listen: Ok/ pretty good
+
 ## 7/31 Freak Out! - Frank Zappa
 * 1st Listen: Ok
 
@@ -58,7 +61,10 @@ I want to love them - but how one dimensional!
 ## 7/15 Ratatat - Ratatat
 * 1st Listen: Pretty/ very good
 
-## 7/14 
+## 7/14 Songs From A Room - Leonard Cohen
+* 1st Listen: Ok
+
+You could hear him in Cake - that deadpan country.
 
 ## 7/13 Me Against The World - 2Pac
 * 1st Listen: Ok
