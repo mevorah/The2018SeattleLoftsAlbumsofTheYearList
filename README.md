@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 8/2 The Doors - The Doors
-* 1st Listen:
+* 1st Listen: Pretty good
 
 ## 8/1 Tim - The Replacements
 * 1st Listen: Ok/ pretty good
