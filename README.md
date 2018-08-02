@@ -43,7 +43,8 @@ I want to love them - but how one dimensional!
 
 ## 7/22
 
-## 7/21 
+## 7/21 On Avery Island - Neutral Milk Hotel
+* 1st Listen: Ok/ pretty good
 
 ## 7/20 Skylarking - XTC
 * 1st Listen: Ok/ pretty good
