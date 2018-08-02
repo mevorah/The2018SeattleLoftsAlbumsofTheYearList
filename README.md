@@ -63,6 +63,7 @@ I want to love them - but how one dimensional!
 
 ## 7/15 Ratatat - Ratatat
 * 1st Listen: Pretty/ very good
+* 2nd Listen: Pretty/ very good
 
 ## 7/14 Songs From A Room - Leonard Cohen
 * 1st Listen: Ok
