@@ -41,7 +41,8 @@ I want to love them - but how one dimensional!
 ## 7/23 The Low End Theory - A Tribe Called Quest
 * 1st Listen: Ok/ pretty good
 
-## 7/22
+## 7/22 Everything Is - Neutral Milk Hotel
+* 1st Listen: Ok/ pretty good
 
 ## 7/21 On Avery Island - Neutral Milk Hotel
 * 1st Listen: Ok/ pretty good
