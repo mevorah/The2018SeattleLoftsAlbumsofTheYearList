@@ -40,7 +40,7 @@ I want to love them - but how one dimensional!
 * 1st Listen: Ok/ pretty good
 
 ## 7/24 Marquee Moon - Television
-* 1st Listen:
+* 1st Listen: Pretty/ very good
 
 ## 7/23 The Low End Theory - A Tribe Called Quest
 * 1st Listen: Ok/ pretty good
