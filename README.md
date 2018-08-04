@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 8/4 Born In The U.S.A - Bruce Springsteen
-* 1st Listen:
+* 1st Listen: Ok/ pretty good
 
 ## 8/3 What's Going On - Marvin Gaye
 * 1st Listen: Ok/ pretty good
@@ -26,7 +26,8 @@ There are certainly albums on this list that I've listened to countless (n) time
 ## 7/30 Homogenic - Bjork
 * 1st Listen: Ok
 
-## 7/29
+## 7/29 Houses Of The Holy - Led Zeppelin
+* Nth Listen: Pretty/ very good
 
 ## 7/28 Vampire Weekend - Vampire Weekend
 * Nth Listen: Pretty/ very good
