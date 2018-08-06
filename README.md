@@ -8,6 +8,10 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 8/6 
+
+## 8/5
+
 ## 8/4 Born In The U.S.A - Bruce Springsteen
 * 1st Listen: Ok/ pretty good
 
