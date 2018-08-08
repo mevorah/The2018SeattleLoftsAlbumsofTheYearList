@@ -8,8 +8,11 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 8/8 Magnolia Electric Co. - Songs: Ohia
+* 1st Listen: Ok/ pretty good
+
 ## 8/7 Reign In Blood - Slayer
-* 1st Listen:
+* 1st Listen: Ok
 
 When I listened to Husker Du and Black Flag this year, In both cases I was left slightly disapointed - Is this really thrashmetal/ hardcore? Is there really as fast as it goes? The answer is Slayer. Whether you typically hold lyrical content in high regard from your very first listen (I don't), the raise in heart rate is undeniable from this album's first track.
 
