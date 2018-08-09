@@ -8,6 +8,9 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 8/9 Future Days - Can
+* 1st Listen: Ok
+
 ## 8/8 Magnolia Electric Co. - Songs: Ohia
 * 1st Listen: Ok/ pretty good
 
