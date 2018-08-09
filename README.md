@@ -19,7 +19,8 @@ When I listened to Husker Du and Black Flag this year, In both cases I was left 
 ## 8/6 Wowee Zowee - Pavement
 * 1st Listen: Ok/ pretty good
 
-## 8/5
+## 8/5 City Music - Kevin Morby
+* 1st Listen: Pretty/ very good
 
 ## 8/4 Born In The U.S.A - Bruce Springsteen
 * 1st Listen: Ok/ pretty good
