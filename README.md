@@ -81,6 +81,9 @@ I want to love them - but how one dimensional!
 
 ## 7/18 Suicide - Suicide
 * 1st Listen: Ok
+* 2nd Listen: Ok
+
+Textures and total creepiness - this album is nuts. The texture makes up for the simplicity, but when all is said and done, I would never listen to anything (but Ghost Rider) on this album if I didn't have to.
 
 ## 7/17 Surfer Rosa - Pixies
 * 1st Listen: Pretty good
