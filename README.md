@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 8/10 Siamese Dream - Smashing Pumpkins
-* 1st Listen:
+* 1st Listen: Pretty good
 
 ## 8/9 Future Days - Can
 * 1st Listen: Ok
@@ -68,6 +68,7 @@ I want to love them - but how one dimensional!
 
 ## 7/23 The Low End Theory - A Tribe Called Quest
 * 1st Listen: Ok/ pretty good
+* 2nd Listen: Pretty good
 
 ## 7/22 Everything Is - Neutral Milk Hotel
 * 1st Listen: Ok/ pretty good
