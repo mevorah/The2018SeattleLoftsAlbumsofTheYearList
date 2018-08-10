@@ -78,6 +78,7 @@ I want to love them - but how one dimensional!
 
 ## 7/19 Transformer - Lou Reed
 * 1st Listen: Pretty good
+* 2nd Listen: Pretty good
 
 ## 7/18 Suicide - Suicide
 * 1st Listen: Ok
@@ -95,6 +96,7 @@ Textures and total creepiness - this album is nuts. The texture makes up for the
 ## 7/15 Ratatat - Ratatat
 * 1st Listen: Pretty/ very good
 * 2nd Listen: Pretty/ very good
+* 3rd Listen: Pretty/ very good
 
 ## 7/14 Songs From A Room - Leonard Cohen
 * 1st Listen: Ok
