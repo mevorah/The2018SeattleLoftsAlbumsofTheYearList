@@ -32,7 +32,7 @@ For a less focussed listen, of the two, I'd opt for this guy.
 ## 8/7 Reign In Blood - Slayer
 * 1st Listen: Ok
 
-When I listened to Husker Du and Black Flag this year, In both cases I was left slightly disapointed - Is this really thrashmetal/ hardcore? Is there really as fast as it goes? The answer is Slayer. Whether you typically hold lyrical content in high regard from your very first listen (I don't), the raise in heart rate is undeniable from this album's first track.
+When I listened to Husker Du and Black Flag this year, In both cases I was left slightly disapointed - Is this really thrashmetal/ hardcore? Is this really as fast as it goes? The answer is Slayer. Whether you typically hold lyrical content in high regard from your very first listen (I don't), the raise in heart rate is undeniable from this album's first track.
 
 ## 8/6 Wowee Zowee - Pavement
 * 1st Listen: Ok/ pretty good
