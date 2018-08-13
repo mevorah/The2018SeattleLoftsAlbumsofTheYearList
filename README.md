@@ -18,7 +18,8 @@ There are different schools of Beatles emulation, and it's difficult to say who 
 
 For a less focussed listen, of the two, I'd opt for this guy.
 
-## 8/11
+## 8/11 Isolation Drills - Guided By Voices
+* 1st Listen:
 
 ## 8/10 Siamese Dream - Smashing Pumpkins
 * 1st Listen: Pretty good
@@ -476,6 +477,7 @@ Like Springsteen, once you get over the cheesiness, the music is verrry good.
 ## 4/15 Bee Thousand - Guided By Voices
 * 1st Listen: Ok
 * 2st Listen: Ok/ Pretty good
+* 3rd Listen: Pretty/ very good
 
 ## 4/14 Pod - The Breeders
 * 1st Listen: Ok/ Pretty good
