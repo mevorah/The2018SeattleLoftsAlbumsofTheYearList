@@ -14,6 +14,10 @@ There are certainly albums on this list that I've listened to countless (n) time
 ## 8/12 What's The Story Morning Glory - Oasis
 * 1st Listen: Pretty good
 
+There are different schools of Beatles emulation, and it's difficult to say who did it right and who did it best. See *Dusk In Cubist Castle - The Olivia Tremor Control*, then listen to this. The former edges toward experimentation - a bit rawer, extending what came before. The latter drills into the sweet spot, creating some great pop. When all is said and done both succeed in what they aim (as far as anyone can tell) to do.
+
+For a less focussed listen, of the two, I'd opt for this guy.
+
 ## 8/11
 
 ## 8/10 Siamese Dream - Smashing Pumpkins
