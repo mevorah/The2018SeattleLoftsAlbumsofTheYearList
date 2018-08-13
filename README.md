@@ -8,6 +8,11 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 8/12 What's The Story Morning Glory - Oasis
+* 1st Listen: Pretty good
+
+## 8/11
+
 ## 8/10 Siamese Dream - Smashing Pumpkins
 * 1st Listen: Pretty good
 
