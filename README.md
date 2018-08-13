@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 8/13 Loveless - My Bloody Valentine
-* 1st Listen: 
+* 1st Listen: Pretty good
 
 ## 8/12 What's The Story Morning Glory - Oasis
 * 1st Listen: Pretty good
@@ -254,8 +254,11 @@ The drums on *Every Picture Tells A Story* and the song *Maggie May* are highlig
 * 2nd Listen: Pretty good
 * 3rd Listen: Pretty/ very good
 * 4th Listen: Pretty/ very good
+* 5th Listen: Pretty/ very good
 
-Paul McCartney opens up with two huge songs. The rest of the album is spent dipping his toes into several genres. One has to admire his tastefulness in doing so. Mamunia for instance - a song that channels aspects of African music, while remaining grounded in McCartney's pop sensibility. It is something that comes off as refreshing in contrast to Paul Simon's *Graceland*. He does this all over the album. Pretty good.
+Paul McCartney opens up with two huge songs. The rest of the album is spent dipping his toes into several genres. One has to admire his tastefulness in doing so. Mamunia for instance - a song that channels aspects of African music, while remaining grounded in McCartney's pop sensibility. It is something that comes off as refreshing in contrast to Paul Simon's *Graceland*. He does this all over the album.
+
+While generally executed well, there is some needless filler *see: Bluebird*. However, despite the choppy mix, McCartney wraps everything up well in *Picasso's Last Words*. This is a great album.
 
 ## 6/3 Fakebook - Yo La Tengo
 * 1st Listen: Ok/ pretty good
