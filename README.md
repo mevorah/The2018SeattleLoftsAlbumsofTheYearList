@@ -368,7 +368,7 @@ You can feel the energy.. even when standing at your desk. I think that's the po
 * 2nd Listen: Pretty good
 * 3rd Listen: Pretty good
 
-This album is in the mix. The tonality is inventive. Unfortunately, the lyrics are at times lacking.
+This album is in the mix. The tonality is inventive. There are big songs. The lyrics at times are lacking, but when all is said and done - what a break up album!
 
 ## 5/8 Psychocandy - The Jesus And Mary Chain
 * 1st Listen: Ok/ pretty good
