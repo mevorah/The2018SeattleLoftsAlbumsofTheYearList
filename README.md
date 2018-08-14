@@ -366,11 +366,13 @@ You can feel the energy.. even when standing at your desk. I think that's the po
 ## 5/9 Bubble & Scrape - Sebadoh
 * 1st Listen: Ok
 * 2nd Listen: Pretty good
+* 3rd Listen: Pretty good
 
 This album is in the mix. The tonality is inventive. Unfortunately, the lyrics are at times lacking.
 
 ## 5/8 Psychocandy - The Jesus And Mary Chain
 * 1st Listen: Ok/ pretty good
+* 2nd Listen: Pretty good
 
 ## 5/7 Double Nickels On The Dime - Minutemen
 * 1st Listen: Pretty good
