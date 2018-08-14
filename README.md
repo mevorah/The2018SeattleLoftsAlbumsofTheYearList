@@ -19,7 +19,9 @@ There are different schools of Beatles emulation, and it's difficult to say who 
 For a less focussed listen, of the two, I'd opt for this guy.
 
 ## 8/11 Isolation Drills - Guided By Voices
-* 1st Listen:
+* 1st Listen: Ok
+
+Glad Girls is great, but I nearly fell asleep listening to this album.
 
 ## 8/10 Siamese Dream - Smashing Pumpkins
 * 1st Listen: Pretty good
