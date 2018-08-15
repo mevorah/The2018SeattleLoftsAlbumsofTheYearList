@@ -9,7 +9,9 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 8/15 Live / Dead - Grateful Dead
-* 1st Listen:
+* 1st Listen: Not great/ ok
+
+Some highlights on this album, but unfortubately overshadowed by excessive noodling.
 
 ## 8/14
 
