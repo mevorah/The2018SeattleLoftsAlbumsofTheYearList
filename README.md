@@ -13,7 +13,8 @@ There are certainly albums on this list that I've listened to countless (n) time
 
 Some highlights on this album, but unfortubately overshadowed by excessive noodling.
 
-## 8/14
+## 8/14 Tea For The Tillerman - Cat Stevens
+* 1st Listen: Ok
 
 ## 8/13 Loveless - My Bloody Valentine
 * 1st Listen: Pretty good
