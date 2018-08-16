@@ -8,6 +8,11 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 8/16 Funeral - Arcade Fire
+* 1st Listen: Pretty/ very good
+
+A concept album about nostalgia.
+
 ## 8/15 Live / Dead - Grateful Dead
 * 1st Listen: Not great/ ok
 
