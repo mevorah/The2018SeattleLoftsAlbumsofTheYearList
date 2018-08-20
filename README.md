@@ -8,6 +8,13 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 8/20 The Marshall Mathers LP - Eminem
+* 1st Listen:
+
+## 8/19
+
+## 8/18
+
 ## 8/17 Hounds of Love - Kate Bush
 * 1st Listen: Ok
 
