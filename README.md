@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 8/20 The Marshall Mathers LP - Eminem
-* 1st Listen:
+* 1st Listen: Ok/ pretty good
 
 ## 8/19
 
