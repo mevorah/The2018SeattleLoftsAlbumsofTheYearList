@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 8/21 Live At The Fillmore East - The Allman Brothers Band
-* 1st Listen:
+* 1st Listen: Ok/ pretty good
 
 ## 8/20 The Marshall Mathers LP - Eminem
 * 1st Listen: Ok/ pretty good
@@ -57,6 +57,7 @@ Glad Girls is great, but I nearly fell asleep listening to this album.
 
 ## 8/8 Magnolia Electric Co. - Songs: Ohia
 * 1st Listen: Ok/ pretty good
+* 2nd Listen: Pretty good
 
 ## 8/7 Reign In Blood - Slayer
 * 1st Listen: Ok
