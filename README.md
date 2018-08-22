@@ -8,13 +8,17 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 8/22 Innervisions - Stevie Wonder
+* 1st Listen:
+
 ## 8/21 Live At The Fillmore East - The Allman Brothers Band
 * 1st Listen: Ok/ pretty good
 
 ## 8/20 The Marshall Mathers LP - Eminem
 * 1st Listen: Ok/ pretty good
 
-## 8/19
+## 8/19 The Stone Roses - The Stone Roses
+* 1st Listen: Ok/ pretty good
 
 ## 8/18
 
