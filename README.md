@@ -73,6 +73,7 @@ When I listened to Husker Du and Black Flag this year, In both cases I was left 
 
 ## 8/4 Born In The U.S.A - Bruce Springsteen
 * 1st Listen: Ok/ pretty good
+* 2nd Listen: Ok/ pretty good
 
 ## 8/3 What's Going On - Marvin Gaye
 * 1st Listen: Ok/ pretty good
