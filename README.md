@@ -156,6 +156,7 @@ Textures and total creepiness - this album is nuts. The texture makes up for the
 * 1st Listen: Pretty/ very good
 * 2nd Listen: Pretty/ very good
 * 3rd Listen: Pretty/ very good
+* 4th Listen: Very good
 
 ## 7/14 Songs From A Room - Leonard Cohen
 * 1st Listen: Ok
