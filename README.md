@@ -8,6 +8,11 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 8/24 Late Registration - Kanye West
+* 1st Listen: Pretty/ very good
+
+## 8/23
+
 ## 8/22 Innervisions - Stevie Wonder
 * 1st Listen:
 
