@@ -11,7 +11,10 @@ There are certainly albums on this list that I've listened to countless (n) time
 ## 8/24 Late Registration - Kanye West
 * 1st Listen: Pretty/ very good
 
-## 8/23
+## 8/23 Paranoid - Black Sabbath
+* 1st Listen: Pretty good
+
+The recording sounds timeless - quintessential 70s rock.
 
 ## 8/22 Innervisions - Stevie Wonder
 * 1st Listen:
