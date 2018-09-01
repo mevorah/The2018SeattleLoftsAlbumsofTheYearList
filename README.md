@@ -8,8 +8,18 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 9/1
+
+## 8/31
+
+## 8/30 Midnite Vultures - Beck
+* Nth Listen: Very good
+
+## 8/29 Return To Cookie Mountain - TV On The Radio
+* 1st Listen: Ok/ pretty good
+
 ## 8/28 Classics - Ratatat
-* 1st Listen:
+* 1st Listen: Ok
 
 ## 8/27
 
