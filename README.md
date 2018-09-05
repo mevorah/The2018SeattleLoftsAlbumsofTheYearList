@@ -182,6 +182,7 @@ Textures and total creepiness - this album is nuts. The texture makes up for the
 ## 7/16 Document - REM
 * 1st Listen: Ok/ pretty good
 * 2nd Listen: Ok/ pretty good
+* 3rd Listen: Ok/ pretty good
 
 ## 7/15 Ratatat - Ratatat
 * 1st Listen: Pretty/ very good
