@@ -708,6 +708,7 @@ I can't help but think that I found this album pretty inacessible on the first l
 ## 3/15 Electric Warrior - T. Rex
 * 1st Listen: Pretty good
 * 2nd Listen: Pretty good
+* 3rd Listen: Pretty/ very good
 
 So hard to tell who influenced them and who they influenced - the opening track sounds like the Black Keys. The follow ups sound like they ripped off Bowie and the Beatles. T.Rex, man.. pretty.. good.
 
