@@ -8,6 +8,16 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 9/5 There's Nothing Wrong With Love - Built To Spill
+* 1st Listen:
+
+## 9/4 NEU! - NEU!
+* 1st Listen: Not great/ ok
+
+## 9/3
+
+## 9/2
+
 ## 9/1
 
 ## 8/31
@@ -20,6 +30,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 
 ## 8/28 Classics - Ratatat
 * 1st Listen: Ok
+* 2nd Listen: Ok
 
 ## 8/27
 
@@ -177,6 +188,7 @@ Textures and total creepiness - this album is nuts. The texture makes up for the
 * 2nd Listen: Pretty/ very good
 * 3rd Listen: Pretty/ very good
 * 4th Listen: Very good
+* 5th Listen: Very good
 
 ## 7/14 Songs From A Room - Leonard Cohen
 * 1st Listen: Ok
