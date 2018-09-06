@@ -8,6 +8,9 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 9/6 Singles Going Steady - Buzzcocks
+* 1st Listen: 
+
 ## 9/5 There's Nothing Wrong With Love - Built To Spill
 * 1st Listen: Ok/ pretty good
 
