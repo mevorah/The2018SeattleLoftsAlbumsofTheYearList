@@ -641,6 +641,7 @@ This album is quantity and quality. When I thought I had rediscovered all of tho
 ## 3/31 Loaded - The Velvet Underground
 * 1st Listen: Pretty good
 * 2nd Listen: Pretty/ very good
+* 3rd Listen: Pretty/ very good
 
 ## 3/30 Modern Lovers - Modern Lovers
 * 1st Listen: Pretty good
