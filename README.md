@@ -651,6 +651,7 @@ Modern and vulnerable - it's amazing that this album was made when it was. Maybe
 
 ## 3/29 Trans Europe Express - Kraftwerk
 * 1st Listen: Ok
+* 2nd Listen: Ok/ pretty good
 
 ## 3/28 Red Medicine - Fugazi
 * 1st Listen: Ok
