@@ -618,6 +618,7 @@ This album is quantity and quality. When I thought I had rediscovered all of tho
 ## 4/6 Tom Tom Club - Tom Tom Club
 * 1st Listen: Ok
 * 2nd Listen: Ok
+* 3rd Listen: Not great/ ok
 
 ## 4/5 Bossanova - Pixies
 * 1st Listen: Ok
