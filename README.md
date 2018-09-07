@@ -106,6 +106,7 @@ Glad Girls is great, but I nearly fell asleep listening to this album.
 ## 8/8 Magnolia Electric Co. - Songs: Ohia
 * 1st Listen: Ok/ pretty good
 * 2nd Listen: Pretty good
+* 2nd Listen: Pretty good
 
 ## 8/7 Reign In Blood - Slayer
 * 1st Listen: Ok
