@@ -899,6 +899,7 @@ I love this album. Perhaps the perfect backdrop for a summer house party.
 * 1st Listen: Very good
 * 2nd Listen: Pretty/ very good
 * 3rd Listen: Pretty/ very good
+* 4th Listen: Very good
 
 Fantastic songs, Paul Simon's voice is incredible - surely an influence on Elliot Smith. Upon the second listen, the lyrics were lacking in a handfull of songs. Third listen will tell.
 
