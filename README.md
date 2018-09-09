@@ -8,6 +8,9 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 9/7 Narrow Stairs - Death Cab For Cutie
+* Nth Listen: Pretty/ very good
+
 ## 9/6 Singles Going Steady - Buzzcocks
 * 1st Listen: Ok
 
@@ -19,7 +22,8 @@ When the singles hit, they hit hard. With that said there is no doubt that this 
 ## 9/4 NEU! - NEU!
 * 1st Listen: Not great/ ok
 
-## 9/3
+## 9/3 Doolittle - Pixies
+* Nth Listen: Very good
 
 ## 9/2
 
