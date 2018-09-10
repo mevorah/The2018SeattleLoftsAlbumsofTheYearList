@@ -8,6 +8,12 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 9/10
+
+## 9/9
+
+## 9/8
+
 ## 9/7 Narrow Stairs - Death Cab For Cutie
 * Nth Listen: Pretty/ very good
 
