@@ -327,6 +327,7 @@ So many amazing songs, but it feels like a mix tape.. until the very end.
 ## 6/10 Under The Bushes Under The Stars - Guided By Voices
 * 1st Listen: Ok
 * 2nd Listen: Pretty good
+* 3rd Listen: Pretty/ very good
 
 ## 6/9 Sailing The Seas Of Cheese - Primus
 * 1st Listen: Not great/ ok
