@@ -25,7 +25,10 @@ When the singles hit, they hit hard. With that said there is no doubt that this 
 ## 9/3 Doolittle - Pixies
 * Nth Listen: Very good
 
-## 9/2
+## 9/2 A Grand Don't Come For Free - The Streets
+* 1st Listen: Pretty good
+
+Leaning toward Pretty/ very good - this is a solid concept album.
 
 ## 9/1
 
