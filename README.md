@@ -475,6 +475,9 @@ This album is in the mix. The tonality is inventive. There are big songs. The ly
 ## 5/8 Psychocandy - The Jesus And Mary Chain
 * 1st Listen: Ok/ pretty good
 * 2nd Listen: Pretty good
+* 3rd Listen: Pretty good
+
+It starts off strong, but after six songs the texture grows old.
 
 ## 5/7 Double Nickels On The Dime - Minutemen
 * 1st Listen: Pretty good
