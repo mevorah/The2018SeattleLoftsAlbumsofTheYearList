@@ -55,7 +55,8 @@ Leaning toward Pretty/ very good - this is a solid concept album.
 
 ## 8/27
 
-## 8/26
+## 8/26 Visiter - Dodos
+* 1st Listen: Ok/ pretty good
 
 ## 8/25 Nevermind - Nirvana
 * Nth Listen: Very good
