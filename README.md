@@ -11,7 +11,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 ## 9/11 Surf's Up - Beach Boys
 * 1st Listen: Ok
 
-## 9/10
+## 9/10 
 
 ## 9/9
 
@@ -80,7 +80,8 @@ The recording sounds timeless - quintessential 70s rock.
 ## 8/19 The Stone Roses - The Stone Roses
 * 1st Listen: Ok/ pretty good
 
-## 8/18
+## 8/18 Person Pitch - Panda Bear
+* 1st Listen: Ok/ pretty good
 
 ## 8/17 Hounds of Love - Kate Bush
 * 1st Listen: Ok
