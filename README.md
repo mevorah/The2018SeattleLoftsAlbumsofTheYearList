@@ -203,6 +203,7 @@ Textures and total creepiness - this album is nuts. The texture makes up for the
 
 ## 7/17 Surfer Rosa - Pixies
 * 1st Listen: Pretty good
+* 2nd Listen: Pretty good
 
 ## 7/16 Document - REM
 * 1st Listen: Ok/ pretty good
