@@ -8,6 +8,12 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 9/13 The Reminder - Feist
+* 1st Listen: Pretty good
+
+## 9/12 Meddle - Pink Floyd
+* 1st Listen: Pretty good
+
 ## 9/11 Surf's Up - Beach Boys
 * 1st Listen: Ok
 
