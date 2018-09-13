@@ -100,7 +100,7 @@ Some highlights on this album, but unfortubately overshadowed by excessive noodl
 ## 8/14 Tea For The Tillerman - Cat Stevens
 * 1st Listen: Ok/ pretty good
 * 2nd Listen: Pretty good
-* 3rd Listen: Pretty good
+* 3rd Listen: Pretty/ very good
 
 ## 8/13 Loveless - My Bloody Valentine
 * 1st Listen: Pretty good
