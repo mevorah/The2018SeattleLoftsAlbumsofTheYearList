@@ -8,6 +8,14 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 9/16 Kill The Moonlight - Spoon
+* 1st Listen: Pretty/ very good
+
+## 9/15
+
+## 9/14 Apologies To Queen Mary - Wolf Parade
+* 1st Listen: Ok
+
 ## 9/13 The Reminder - Feist
 * 1st Listen: Pretty good
 
