@@ -9,7 +9,9 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 9/17 Everybody Knows This Is Nowhere - Neil Young
-* 1st Listen:
+* 1st Listen: Ok
+
+Highlights: *Everybody Knows This Is Nowhere*, *Cowgirl In The Sand*
 
 ## 9/16 Kill The Moonlight - Spoon
 * 1st Listen: Pretty/ very good
