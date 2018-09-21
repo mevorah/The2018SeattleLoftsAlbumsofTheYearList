@@ -8,7 +8,8 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
-## 9/21
+## 9/21 Different Class - Pulp
+* 1st Listen: 
 
 ## 9/20 At Folsom Prison - Johnney Cash
 * 1st Listen: Ok/ pretty good
