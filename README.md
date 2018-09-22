@@ -8,13 +8,17 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 9/22 Bon Iver - Bon Iver
+* Nth Listen: Pretty/ very good
+
 ## 9/21 Different Class - Pulp
-* 1st Listen: 
+* 1st Listen: Ok/ pretty good
 
 ## 9/20 At Folsom Prison - Johnney Cash
 * 1st Listen: Ok/ pretty good
 
-## 9/19
+## 9/19 White Blood Cells - White Stripes
+* Nth Listen: Very good/ incredible
 
 ## 9/18
 
