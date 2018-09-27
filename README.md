@@ -8,6 +8,9 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 9/27 Rum Sodomy & The Lash - The Pogues
+* 1st Listen:
+
 ## 9/26 Crazy Rhythms - The Feelies
 * 1st Listen: Pretty good
 
