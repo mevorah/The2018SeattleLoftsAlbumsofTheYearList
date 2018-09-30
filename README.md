@@ -16,6 +16,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 
 ## 9/26 Crazy Rhythms - The Feelies
 * 1st Listen: Pretty good
+* 2nd Listen: Ok/ pretty good
 
 ## 9/25
 
