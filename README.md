@@ -11,13 +11,15 @@ There are certainly albums on this list that I've listened to countless (n) time
 ## 10/3 Randy Newman - Randy Newman
 * 1st Listen: 
 
-## 10/2
+## 10/2 Imperial Bedroom - Elvis Costello & The Attractions
+* 1st Listen:
 
 ## 10/1
 
 ## 9/30
 
-## 9/29
+## 9/29 Is This It - The Strokes
+* Nth Listen: Very good
 
 ## 9/28 Underwater Moonlight - The Soft Boys
 * 1st Listen: Ok/ pretty good
