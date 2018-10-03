@@ -12,9 +12,11 @@ There are certainly albums on this list that I've listened to countless (n) time
 * 1st Listen: Pretry good
 
 ## 10/2 Imperial Bedroom - Elvis Costello & The Attractions
-* 1st Listen:
+* 1st Listen: Ok/ pretty good
 
-## 10/1
+Some great arrangements; entirely more barable than *Get Happy*.
+
+## 10/1 
 
 ## 9/30
 
