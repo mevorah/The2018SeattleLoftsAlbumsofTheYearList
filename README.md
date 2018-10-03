@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 10/3 Randy Newman - Randy Newman
-* 1st Listen: 
+* 1st Listen: Pretry good
 
 ## 10/2 Imperial Bedroom - Elvis Costello & The Attractions
 * 1st Listen:
