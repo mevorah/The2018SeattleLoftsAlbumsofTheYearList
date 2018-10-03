@@ -8,6 +8,17 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 10/3 Randy Newman - Randy Newman
+* 1st Listen: 
+
+## 10/2
+
+## 10/1
+
+## 9/30
+
+## 9/29
+
 ## 9/28 Underwater Moonlight - The Soft Boys
 * 1st Listen: Ok/ pretty good
 
