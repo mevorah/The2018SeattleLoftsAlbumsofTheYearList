@@ -20,7 +20,8 @@ Tom Waits hasn't come around yet..
 ## 10/6 All Things Must Pass - George Harrison
 * 1st Listen: Pretty/ very good
 
-## 10/5 
+## 10/5 Ella Fitzgerald Sings the George and Ira Gershwin Song Book - Ella Fitzgerald
+* 1st Listen: Ok/ pretty good
 
 ## 10/4
 
