@@ -21,7 +21,7 @@ Tom Waits hasn't come around yet..
 * 1st Listen: Pretty/ very good
 
 ## 10/5 Ella Fitzgerald Sings the George and Ira Gershwin Song Book - Ella Fitzgerald
-* 1st Listen: Ok/ pretty good
+* 1st Listen: Ok
 
 ## 10/4
 
