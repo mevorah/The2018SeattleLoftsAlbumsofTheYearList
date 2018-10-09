@@ -8,8 +8,11 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+
 ## 10/8 Bone Machine - Tom Waits
-* 1st Listen:
+* 1st Listen: Not great/ ok
+
+Tom Waits hasn't come around yet..
 
 ## 10/7 Pet Sounds - The Beach Boys
 * Nth Listen: Incredible
@@ -17,7 +20,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 ## 10/6 All Things Must Pass - George Harrison
 * 1st Listen: Pretty/ very good
 
-## 10/5
+## 10/5 
 
 ## 10/4
 
