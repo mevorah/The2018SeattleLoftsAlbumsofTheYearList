@@ -77,7 +77,7 @@ Some great arrangements; entirely more barable than *Get Happy*.
 * 1st Listen: Ok/ pretty good
 
 ## 9/19 White Blood Cells - White Stripes
-* Nth Listen: Very good/ incredible
+* Nth Listen: Very good
 
 ## 9/18
 
