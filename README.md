@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 10/15 Alligator - The National
-* 1st Listen:
+* 1st Listen: Pretty good
 
 ## 10/14
 
