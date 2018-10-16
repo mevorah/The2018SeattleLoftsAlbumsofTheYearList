@@ -14,7 +14,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 ## 10/14
 
 ## 10/13 Turn On The Bright Lights - Interpol
-* 1st Listen:
+* 1st Listen: Ok
 
 ## 10/12 Agaetis Byrjun - Sigur Ros
 * 1st Listen: Pretty good
