@@ -11,7 +11,8 @@ There are certainly albums on this list that I've listened to countless (n) time
 ## 10/15 Alligator - The National
 * 1st Listen: Pretty good
 
-## 10/14
+## 10/14 Teens of Denial - Car Seat Headrest
+* 1st Listen: Ok/ pretty good
 
 ## 10/13 Turn On The Bright Lights - Interpol
 * 1st Listen: Ok
