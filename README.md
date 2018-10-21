@@ -8,6 +8,11 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 10/20 In Rainbows - Radiohead
+* Nth Listen: Very good/ incredible
+
+## 10/19
+
 ## 10/18 Supreme Clientele - Ghostface Killah
 * 1st listen: Ok/ pretty good
 
