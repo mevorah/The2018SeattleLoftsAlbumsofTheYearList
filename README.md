@@ -11,7 +11,8 @@ There are certainly albums on this list that I've listened to countless (n) time
 ## 10/20 In Rainbows - Radiohead
 * Nth Listen: Very good/ incredible
 
-## 10/19
+## 10/19 Kala - M.I.A
+* 1st Listen - Ok/ pretty good
 
 ## 10/18 Supreme Clientele - Ghostface Killah
 * 1st listen: Ok/ pretty good
