@@ -8,6 +8,9 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 10/21 Fever To Tell - Yeah Yeah Yeahs
+* 1st Listen - Pretty good
+
 ## 10/20 In Rainbows - Radiohead
 * Nth Listen: Very good/ incredible
 
@@ -15,9 +18,10 @@ There are certainly albums on this list that I've listened to countless (n) time
 * 1st Listen - Ok/ pretty good
 
 ## 10/18 Supreme Clientele - Ghostface Killah
-* 1st listen: Ok/ pretty good
+* 1st Listen: Ok/ pretty good
 
-## 10/17
+## 10/17 You Forgot It In People - Broken Social Scene
+* 1st Listen: Ok
 
 ## 10/16 Hearts of Oak - Ted Leo and the Pharmacists
 * 1st Listen: Ok/ pretty good
