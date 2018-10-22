@@ -63,10 +63,11 @@ Tom Waits hasn't come around yet..
 ## 10/5 Ella Fitzgerald Sings the George and Ira Gershwin Song Book - Ella Fitzgerald
 * 1st Listen: Ok
 
-## 10/4
+## 10/4 Microcastle - Deerhunter
+* 1st Listen: Ok/ pretty good
 
 ## 10/3 Randy Newman - Randy Newman
-* 1st Listen: Pretry good
+* 1st Listen: Pretty good
 
 ## 10/2 Imperial Bedroom - Elvis Costello & The Attractions
 * 1st Listen: Ok/ pretty good
