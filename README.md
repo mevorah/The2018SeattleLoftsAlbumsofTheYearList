@@ -8,17 +8,20 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 10/23 Locust Abortion Technician - Butthole Surfers
+* 1st Listen: Not great/ ok
+
 ## 10/22 Separation Sunday - The Hold Steady
-* 1st Listen - Not great/ ok
+* 1st Listen: Not great/ ok
 
 ## 10/21 Fever To Tell - Yeah Yeah Yeahs
-* 1st Listen - Pretty good
+* 1st Listen: Pretty good
 
 ## 10/20 In Rainbows - Radiohead
 * Nth Listen: Very good/ incredible
 
 ## 10/19 Kala - M.I.A
-* 1st Listen - Ok/ pretty good
+* 1st Listen: Ok/ pretty good
 
 ## 10/18 Supreme Clientele - Ghostface Killah
 * 1st Listen: Ok/ pretty good
