@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 10/22 Separation Sunday - The Hold Steady
-* 1st Listen - Ok
+* 1st Listen - Not great/ ok
 
 ## 10/21 Fever To Tell - Yeah Yeah Yeahs
 * 1st Listen - Pretty good
