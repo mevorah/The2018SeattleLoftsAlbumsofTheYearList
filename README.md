@@ -11,11 +11,13 @@ There are certainly albums on this list that I've listened to countless (n) time
 ## 11/6 House Of The Blues - John Lee Hooker
 * 1st Listen:
 
-## 11/5
+## 11/5 Synchronicity - The Police
+* 1st Listen: Ok/ pretty good
 
 ## 11/4
 
-## 11/3
+## 11/3 Awake - Tycho
+* Nth Listen: Pretty good
 
 ## 11/2
 
