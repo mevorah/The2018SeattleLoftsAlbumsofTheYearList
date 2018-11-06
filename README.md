@@ -29,9 +29,17 @@ There are certainly albums on this list that I've listened to countless (n) time
 
 ## 10/28
 
-## 10/27
+## 10/27 FutureSex/LoveSounds - Justin Timberlake
+* 1st Listen: Pretty good
+* 2nd Listen: Pretty/ very good
 
-## 10/26
+The album is really good - JT packs a ton of solid songs as highlights. But the rest is by no means filler - there are funky breakdowns, melodies, and great musicianship. It’s a pop album that has depth derived from the marriage of music and lyrics.
+
+## 10/26 No Age - Nouns
+* 1st Listen: Ok
+* 2nd Listen: Ok
+
+Intense and listenable. With that said, less than a few standouts. 
 
 ## 10/25
 
