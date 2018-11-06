@@ -21,7 +21,8 @@ There are certainly albums on this list that I've listened to countless (n) time
 
 ## 11/1
 
-## 10/31
+## 10/31 Miss E... So Addictive - Missy Elliot
+* 1st Listen: Ok
 
 ## 10/30
 
@@ -29,7 +30,9 @@ There are certainly albums on this list that I've listened to countless (n) time
 * 1st Listen: Ok/ pretty good
 Dreamy and chiller than chill. This album evokes times of old and new. Hints of jazz are mixed with boroque Beatles. But with that said, 1-dimensional. Best served in small doses.
 
-## 10/28
+## 10/28 The Warning - Hot Chip
+* 1st Listen: Pretty good
+Cathartic electronic music, yes please. Spotty at times. 
 
 ## 10/27 FutureSex/LoveSounds - Justin Timberlake
 * 1st Listen: Pretty good
