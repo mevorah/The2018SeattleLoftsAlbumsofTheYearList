@@ -911,6 +911,7 @@ So hard to tell who influenced them and who they influenced - the opening track 
 * 1st Listen: Pretty/ very good
 * 2nd Listen: Pretty/ very good
 * 3rd Listen: Very good
+* 4th Listen: Very good
 
 *Highlights:* I Was the Fool Beside You for Too Long, The Whole of the Law
 
