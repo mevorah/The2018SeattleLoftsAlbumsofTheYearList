@@ -8,6 +8,35 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 11/6 House Of The Blues - John Lee Hooker
+* 1st Listen:
+
+## 11/5
+
+## 11/4
+
+## 11/3
+
+## 11/2
+
+## 11/1
+
+## 10/31
+
+## 10/30
+
+## 10/29
+
+## 10/28
+
+## 10/27
+
+## 10/26
+
+## 10/25
+
+## 10/24
+
 ## 10/23 Locust Abortion Technician - Butthole Surfers
 * 1st Listen: Not great/ ok
 
