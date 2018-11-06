@@ -932,6 +932,7 @@ It's amazing that after nearly two years of regular listening, I haven't gotten 
 
 ## 3/10 Amnesiac - Radiohead
 * 1st Listen: Pretty/ very good
+* 2nd Listen: Very good
 
 ## 3/9 Otis Blue Otis Redding Sings Soul - Otis Redding
 * 1st Listen: Pretty/ very good
