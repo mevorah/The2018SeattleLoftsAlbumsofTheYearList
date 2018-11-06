@@ -25,7 +25,9 @@ There are certainly albums on this list that I've listened to countless (n) time
 
 ## 10/30
 
-## 10/29
+## 10/29 Suburban Light - The Clientele
+* 1st Listen: Ok/ pretty good
+Dreamy and chiller than chill. This album evokes times of old and new. Hints of jazz are mixed with boroque Beatles. But with that said, 1-dimensional. Best served in small doses.
 
 ## 10/28
 
