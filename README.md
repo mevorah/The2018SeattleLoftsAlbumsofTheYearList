@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 11/6 House Of The Blues - John Lee Hooker
-* 1st Listen:
+* 1st Listen: Ok
 
 ## 11/5 Synchronicity - The Police
 * 1st Listen: Ok/ pretty good
