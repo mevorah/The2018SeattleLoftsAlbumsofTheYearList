@@ -8,6 +8,9 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 11/7 Where Did You Sleep Last Night Lead Belly Legacy Vol. 1 - Lead Belly
+* 1st Listen:
+
 ## 11/6 House Of The Blues - John Lee Hooker
 * 1st Listen: Ok
 
