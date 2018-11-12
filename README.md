@@ -9,6 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 11/13 Parklife - Blur
+* 1st Listen:
 
 ## 11/12
 
