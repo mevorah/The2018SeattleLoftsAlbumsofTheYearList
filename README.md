@@ -8,7 +8,14 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
-## 11/9
+## 11/13 Parklife - Blur
+
+## 11/12
+
+## 11/10
+
+## 11/9 Here's Little Richard - Little Richard
+*
 
 ## 11/8 The Best Of Django Reinhard - Django Reinhard
 * 1st Listen: Ok
