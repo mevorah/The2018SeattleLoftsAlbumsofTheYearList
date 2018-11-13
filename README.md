@@ -14,12 +14,13 @@ There are certainly albums on this list that I've listened to countless (n) time
 ## 11/12 Parklife - Blur
 * 1st Listen: Pretty/ very good
 
-## 11/11
+## 11/11 Blood On The Tracks - Bob Dylan
+* 1st Listen:
 
 ## 11/10
 
 ## 11/9 Here's Little Richard - Little Richard
-*
+* 1st Listen: Unknown
 
 ## 11/8 The Best Of Django Reinhard - Django Reinhard
 * 1st Listen: Ok
