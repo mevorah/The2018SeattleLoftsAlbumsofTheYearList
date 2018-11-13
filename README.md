@@ -8,10 +8,13 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
-## 11/13 Parklife - Blur
+## 11/13 Bryter Layter - Nick Drake
+* 1st Listen:
+
+## 11/12 Parklife - Blur
 * 1st Listen: Pretty/ very good
 
-## 11/12
+## 11/11
 
 ## 11/10
 
