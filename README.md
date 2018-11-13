@@ -51,10 +51,12 @@ There are some classics on this album.
 
 ## 10/29 Suburban Light - The Clientele
 * 1st Listen: Ok/ pretty good
+
 Dreamy and chiller than chill. This album evokes times of old and new. Hints of jazz are mixed with boroque Beatles. But with that said, 1-dimensional. Best served in small doses.
 
 ## 10/28 The Warning - Hot Chip
 * 1st Listen: Pretty good
+
 Cathartic electronic music, yes please. Spotty at times. 
 
 ## 10/27 FutureSex/LoveSounds - Justin Timberlake
