@@ -9,7 +9,9 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 11/14 Led Zeppelin IV - Led Zeppelin
-* Nth Listen:
+* Nth Listen: Very good
+
+The rest more than makes up for the two lesser tracks.
 
 ## 11/13 Bryter Layter - Nick Drake
 * 1st Listen: Pretty/ very good
