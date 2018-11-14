@@ -22,7 +22,8 @@ The rest more than makes up for the two lesser tracks.
 ## 11/11 Blood On The Tracks - Bob Dylan
 * 1st Listen: Ok
 
-## 11/10
+## 11/10 Modern Sounds In Country And Western Music, Vols. 1&2 - Ray Charles
+* 1st Listen:
 
 ## 11/9 Here's Little Richard - Little Richard
 * 1st Listen: Unknown
