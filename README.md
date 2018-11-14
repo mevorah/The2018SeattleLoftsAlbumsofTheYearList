@@ -18,7 +18,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 * 1st Listen: Pretty/ very good
 
 ## 11/11 Blood On The Tracks - Bob Dylan
-* 1st Listen:
+* 1st Listen: Ok
 
 ## 11/10
 
