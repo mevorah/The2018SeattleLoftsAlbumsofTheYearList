@@ -8,8 +8,11 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
-## 11/15 Moondog - Moondog
+## 11/16 Safe As Milk - Captain Beefheart & His Magical Band
 * 1st Listen:
+
+## 11/15 Moondog - Moondog
+* 1st Listen: Ok/ pretty good
 
 ## 11/14 Led Zeppelin IV - Led Zeppelin
 * Nth Listen: Very good
@@ -173,6 +176,7 @@ Some great arrangements; entirely more barable than *Get Happy*.
 ## 9/26 Crazy Rhythms - The Feelies
 * 1st Listen: Pretty good
 * 2nd Listen: Ok/ pretty good
+* 3rd Listen: Ok/ pretty good
 
 ## 9/25
 
@@ -216,6 +220,7 @@ Highlights: *Everybody Knows This Is Nowhere*, *Cowgirl In The Sand*
 
 ## 9/11 Surf's Up - Beach Boys
 * 1st Listen: Ok
+* 2nd Listen: Ok/ pretty good
 
 ## 9/10 
 
