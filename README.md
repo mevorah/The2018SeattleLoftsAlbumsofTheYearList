@@ -8,6 +8,12 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 11/27 Fear Of A Black Planet - Public Enemy
+* 1st Listen: 
+
+## 11/17 In Through The Out Door - Led Zeppelin
+* 1st Listen: Ok
+
 ## 11/16 Safe As Milk - Captain Beefheart & His Magical Band
 * 1st Listen:
 
@@ -75,6 +81,7 @@ Cathartic electronic music, yes please. Spotty at times.
 ## 10/27 FutureSex/LoveSounds - Justin Timberlake
 * 1st Listen: Pretty good
 * 2nd Listen: Pretty/ very good
+* 3rd Listen: Pretty/ very good
 
 The album is really good - JT packs a ton of solid songs as highlights. But the rest is by no means filler - there are funky breakdowns, melodies, and great musicianship. It’s a pop album that has depth derived from the marriage of music and lyrics.
 
