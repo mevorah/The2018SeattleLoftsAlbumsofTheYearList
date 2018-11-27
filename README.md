@@ -59,7 +59,7 @@ The rest more than makes up for the two lesser tracks.
 * 1st Listen:
 
 ## 11/9 Here's Little Richard - Little Richard
-* 1st Listen: Unknown
+* 1st Listen: 
 
 ## 11/8 The Best Of Django Reinhard - Django Reinhard
 * 1st Listen: Ok
