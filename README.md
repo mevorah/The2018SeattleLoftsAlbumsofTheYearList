@@ -451,6 +451,7 @@ You could hear him in Cake - that deadpan country.
 
 ## 7/11 Back In Black - ACDC
 * 1st Listen: Ok
+* 2nd Listen: Ok/ pretty good
 
 ## 7/10 Iaora Tahiti - Mouse On Mars
 * 1st Listen: Not great/ ok
