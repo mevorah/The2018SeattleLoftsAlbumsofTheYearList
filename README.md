@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 11/27 Fear Of A Black Planet - Public Enemy
-* 1st Listen: 
+* 1st Listen: Ok/ pretty good
 
 ## 11/26
 
