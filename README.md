@@ -20,7 +20,7 @@ Terminator exit!!
 * 1st Listen: Ok
 
 ## 11/16 Safe As Milk - Captain Beefheart & His Magical Band
-* 1st Listen:
+* 1st Listen: Ok/ pretty good
 
 ## 11/15 Moondog - Moondog
 * 1st Listen: Ok/ pretty good
