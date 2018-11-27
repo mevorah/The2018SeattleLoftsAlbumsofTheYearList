@@ -11,6 +11,22 @@ There are certainly albums on this list that I've listened to countless (n) time
 ## 11/27 Fear Of A Black Planet - Public Enemy
 * 1st Listen: 
 
+## 11/26
+
+## 11/25
+
+## 11/24
+
+## 11/23
+
+## 11/22
+
+## 11/21
+
+## 11/20
+
+## 11/19
+
 ## 11/18 It Takes A Nation Of Millions To Hold Us Back - Public Enemy
 * 1st Listen: Ok/ pretty good
 
