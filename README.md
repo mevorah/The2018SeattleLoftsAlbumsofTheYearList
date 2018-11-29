@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 11/29 Live At The Apollo - James Brown
-* 1st Listen:
+* 1st Listen: Ok
 
 ## 11/28 The Piper At The Gates Of Dawn - Pink Floyd
 * 1st Listen: Ok
