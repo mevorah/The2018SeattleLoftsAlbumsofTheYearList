@@ -111,8 +111,11 @@ Cathartic electronic music, yes please. Spotty at times.
 * 1st Listen: Pretty good
 * 2nd Listen: Pretty/ very good
 * 3rd Listen: Pretty/ very good
+* 4th Listen: Very good
 
 The album is really good - JT packs a ton of solid songs as highlights. But the rest is by no means filler - there are funky breakdowns, melodies, and great musicianship. It’s a pop album that has depth derived from the marriage of music and lyrics.
+
+It's an album that has me coming back continously. A great running album, and as a whole a fantastic party album.
 
 ## 10/26 No Age - Nouns
 * 1st Listen: Ok
