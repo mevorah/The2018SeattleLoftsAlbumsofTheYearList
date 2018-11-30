@@ -307,7 +307,7 @@ Leaning toward Pretty/ very good - this is a solid concept album.
 * 2nd Listen: Ok
 
 ## 8/27 Rooty - Basement Jaxx
-* 1st Listen:
+* 1st Listen: Ok/ pretty good
 
 ## 8/26 Visiter - Dodos
 * 1st Listen: Ok/ pretty good
