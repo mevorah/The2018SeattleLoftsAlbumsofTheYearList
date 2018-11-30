@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 11/30 Wild Is The Wild - Nina Simone
-* 1st Listen: 
+* 1st Listen: Ok/ pretty good
 
 ## 11/29 Live At The Apollo - James Brown
 * 1st Listen: Ok
@@ -22,7 +22,7 @@ I hadn't heard a single song on this album.
 ## 11/27 Fear Of A Black Planet - Public Enemy
 * 1st Listen: Ok/ pretty good
 
-## 11/26
+## 11/26 
 
 ## 11/25
 
@@ -306,7 +306,8 @@ Leaning toward Pretty/ very good - this is a solid concept album.
 * 1st Listen: Ok
 * 2nd Listen: Ok
 
-## 8/27
+## 8/27 Rooty - Basement Jaxx
+* 1st Listen:
 
 ## 8/26 Visiter - Dodos
 * 1st Listen: Ok/ pretty good
