@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 12/1 The Argument - Fugazi
-* 1st Listen:
+* 1st Listen: Not great/ Ok
 
 ## 11/30 Wild Is The Wild - Nina Simone
 * 1st Listen: Ok/ pretty good
