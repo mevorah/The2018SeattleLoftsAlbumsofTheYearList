@@ -294,7 +294,8 @@ Leaning toward Pretty/ very good - this is a solid concept album.
 
 ## 9/1
 
-## 8/31
+## 8/31 Endless Summer - Fennesz
+* 1st Listen: Not great/ ok
 
 ## 8/30 Midnite Vultures - Beck
 * Nth Listen: Very good
