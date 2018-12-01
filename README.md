@@ -325,7 +325,7 @@ Leaning toward Pretty/ very good - this is a solid concept album.
 The recording sounds timeless - quintessential 70s rock.
 
 ## 8/22 Innervisions - Stevie Wonder
-* 1st Listen:
+* 1st Listen: Ok/ pretty good
 
 ## 8/21 Live At The Fillmore East - The Allman Brothers Band
 * 1st Listen: Ok/ pretty good
