@@ -295,7 +295,8 @@ When the singles hit, they hit hard. With that said there is no doubt that this 
 
 Leaning toward Pretty/ very good - this is a solid concept album.
 
-## 9/1
+## 9/1 Willy And The Poor Boys - Creedence Clearwater Revival
+* 1st Listen: Ok/ pretty good
 
 ## 8/31 Endless Summer - Fennesz
 * 1st Listen: Not great/ ok
