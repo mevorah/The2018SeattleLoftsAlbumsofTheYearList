@@ -1160,6 +1160,7 @@ This album is crazy hit or miss.
 ## 2/13 Rio - Duran Duran
 * 1st Listen: Not great
 * 2nd Listen: Ok
+* 3rd Listen: Ok
 
 ## 2/12 Bitches Brew - Miles Davis
 * 1st Listen: Pretty good
@@ -1170,6 +1171,9 @@ But honestly, how do you rate such an album. It's clear that this album is great
 * 1st Listen: Unknown
 * 2nd Listen: Pretty/ very good
 * 3rd Listen: Pretty/ very good
+* 4th Listen: Very good
+
+Amazing how experimental yet accessible this album is. Hits on hits on hits.
 
 ## 2/10 Odelay - Beck
 * Nth Listen: Very good/ Amazing
