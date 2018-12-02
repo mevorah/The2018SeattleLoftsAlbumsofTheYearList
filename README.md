@@ -269,9 +269,11 @@ Highlights: *Everybody Knows This Is Nowhere*, *Cowgirl In The Sand*
 
 ## 9/10 
 
-## 9/9
+## 9/9 Ga Ga Ga - Spoon
+* Nth Listen: Very good
 
-## 9/8
+## 9/8 The Bends - Radiohead
+* Nth Listen: Very good/ incredible
 
 ## 9/7 Narrow Stairs - Death Cab For Cutie
 * Nth Listen: Pretty/ very good
