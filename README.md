@@ -1183,11 +1183,14 @@ I love this album. Perhaps the perfect backdrop for a summer house party.
 * 1st Listen: Pretty/ very good
 * 2nd Listen (Same Day): Pretty/ very good
 * 3rd Listen: Pretty good
+* 4th Listen: Ok/ pretty good
+
+There is a ton of innovation in this album. With that said the lyrics aren't great, and there hasn't been a significant draw to come back.
 
 ## 2/8 Cosmo's Factory - Creedence Clearwater Revival
 * 1st Listen: Pretty good
 
-## 2/7 Station To Station - David Bowie
+## 2/7 Station To Station - David Bowie a
 * 1st Listen: Pretty/ very good
 * 2nd Listen: Pretty/ very good
 
