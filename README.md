@@ -903,7 +903,15 @@ This album is quantity and quality. When I thought I had rediscovered all of tho
 * 1st Listen: Ok
 * 2nd Listen: Ok
 
-## 4/7
+## 4/7 Last Splash - The Breeders
+* 1st Listen: Pretty good
+* 2nd Listen: Pretty good
+* 3rd Listen: Pretty/ very good
+* 4th Listen: Very good
+* 5th Listen: Very good
+* 6th Listen: Very good
+
+This album is thoroughly enjoyable all the way through. It's clear to see Kim Deal's influence on the Pixes.
 
 ## 4/6 Tom Tom Club - Tom Tom Club
 * 1st Listen: Ok
@@ -1071,16 +1079,6 @@ More tolerable than free form jazz - Mingus actually has a composition he's work
 
 *Good Vibrations* is amazing, but the rest of the album leaves a lot to be desired after Pet Sounds. Some tracks are needlessly obscure (She's Goin Bald), others range between ok and pretty good. *Ok/ pretty good*.
 
-## 3/2/3 Last Splash - The Breeders
-* 1st Listen: Pretty good
-* 2nd Listen: Pretty good
-* 3rd Listen: Pretty/ very good
-* 4th Listen: Very good
-* 5th Listen: Very good
-* 6th Listen: Very good
-
-This album is thoroughly enjoyable all the way through. It's clear to see Kim Deal's influence on the Pixes.
-
 ## 3/2 Trompe Le Monde - Pixies
 * 1st Listen: Ok/ pretty good
 * 2nd Listen: Pretty good
@@ -1190,7 +1188,7 @@ There is a ton of innovation in this album. With that said the lyrics aren't gre
 ## 2/8 Cosmo's Factory - Creedence Clearwater Revival
 * 1st Listen: Pretty good
 
-## 2/7 Station To Station - David Bowie a
+## 2/7 Station To Station - David Bowie
 * 1st Listen: Pretty/ very good
 * 2nd Listen: Pretty/ very good
 
