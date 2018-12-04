@@ -272,7 +272,10 @@ Highlights: *Everybody Knows This Is Nowhere*, *Cowgirl In The Sand*
 * 1st Listen: Ok
 * 2nd Listen: Ok/ pretty good
 
-## 9/10 
+## 9/10 London Calling - The Clash
+* 1st Listen: Pretty good
+
+Quantity, quality, and variety. What a treat!
 
 ## 9/9 Ga Ga Ga - Spoon
 * Nth Listen: Very good
