@@ -978,6 +978,7 @@ The commonalities between this and the Gorillaz is unmistakable. Com'on Damon!
 
 ## 3/24 Bookends - Simon & Garfunkel
 * 1st Listen: Ok
+* 2nd Listen: Pretty good
 
 ## 3/23 Who's Next - The Who
 * 1st Listen: Ok/ pretty good
