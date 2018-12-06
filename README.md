@@ -1123,7 +1123,7 @@ Panis Et Circenses - some boroque, some tape delays; can this be the Brazilian B
 Better than Pet Sounds? I. Don't. Think. So.
 
 ## 2/25 After The Gold Rush - Neil Young
-* ~5th Listen: Very good
+* Nth Listen: Very good
 
 The songs stand for themselves - keeping instrumentation to a minimum, Neil Young puts a lot of this album's weight on its melodies. He fully succeeds.
 
