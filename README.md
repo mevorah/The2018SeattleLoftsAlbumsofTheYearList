@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 12/6 Horses - Patti Smith
-* 1st Listen:
+* 1st Listen: Ok/ pretty good
 
 ## 12/5 Tapestry - Carole King
 * 1st Listen: Pretty/ very good
@@ -1168,6 +1168,7 @@ Hearing rock influences is so common, but this is the first where I heard electr
 ## 2/15 Goo - Sonic Youth
 * 1st Listen: Ok/ pretty good
 * 2nd Listen: Ok/ pretty good
+* 3rd Listen: Pretty good
 
 This album is crazy hit or miss.
 
