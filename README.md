@@ -175,6 +175,7 @@ Intense and listenable. With that said, less than a few standouts.
 
 ## 10/15 Alligator - The National
 * 1st Listen: Pretty good
+* 2nd Listen: Pretty/ very good
 
 ## 10/14 Teens of Denial - Car Seat Headrest
 * 1st Listen: Ok/ pretty good
