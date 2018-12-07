@@ -269,7 +269,8 @@ Highlights: *Everybody Knows This Is Nowhere*, *Cowgirl In The Sand*
 ## 9/16 Kill The Moonlight - Spoon
 * 1st Listen: Pretty/ very good
 
-## 9/15
+## 9/15 Forever Changes - Love
+* 1st Listen:
 
 ## 9/14 Apologies To Queen Mary - Wolf Parade
 * 1st Listen: Ok
