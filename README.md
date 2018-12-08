@@ -270,7 +270,7 @@ Highlights: *Everybody Knows This Is Nowhere*, *Cowgirl In The Sand*
 * 1st Listen: Pretty/ very good
 
 ## 9/15 Forever Changes - Love
-* 1st Listen:
+* 1st Listen: Ok/ pretty good
 
 ## 9/14 Apologies To Queen Mary - Wolf Parade
 * 1st Listen: Ok
