@@ -8,6 +8,9 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 12/10 Off The Wall - Michael Jackson
+* 1st Listen:
+
 ## 12/9 This Year's Model - Elvis Costello & The Attractions
 * 1st Listen: Ok
 
