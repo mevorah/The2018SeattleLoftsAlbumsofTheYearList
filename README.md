@@ -738,6 +738,9 @@ Every great reggae song has been put on this album. What a tour de force of... r
 ## 5/15 The Three E.P's - The Beta Band
 * 1st Listen: Ok
 * 2nd Listen: Ok
+* 3rd Listen: Pretty good
+
+A couple of solid songs with interesting ambient works in between!
 
 ## 5/14 Check Your Head - Beastie Boys
 * 1st Listen: Not great/ ok
@@ -745,6 +748,7 @@ Every great reggae song has been put on this album. What a tour de force of... r
 ## 5/13 Damaged - Blackflag
 * 1st Listen: Not great/ ok
 * 2nd Listen: Ok
+* 3rd Listen: Ok/ pretty good
 
 You can feel the energy.. even when standing at your desk. I think that's the point.
 
