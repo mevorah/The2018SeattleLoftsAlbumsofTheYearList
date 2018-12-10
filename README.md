@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 12/9 This Year's Model - Elvis Costello & The Attractions
-* 1st Listen:
+* 1st Listen: Ok
 
 ## 12/8
 
