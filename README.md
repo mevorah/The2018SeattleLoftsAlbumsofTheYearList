@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 12/11 Dusty In Memphis - Dusty Springfield
-* 1st Listen:
+* 1st Listen: Ok/ pretty good
 
 ## 12/10 Off The Wall - Michael Jackson
 * 1st Listen: Ok
