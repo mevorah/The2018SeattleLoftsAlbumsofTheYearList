@@ -1417,11 +1417,12 @@ Production has aged very well. Every song is a standout. Phenomenal arrangement,
 ## 1/1 Low - David Bowie
  * 1st Listen: Very good
  * 2nd Listen: Very good/ amazing
- * 3rd Listen (3/16): Very good/ incredible
+ * 3rd Listen: Very good/ incredible
+ * 4th Listen: Very good
 
 Only one single if any - Sound and Vision. Otherwise the album lives only as a whole - tracking Bowies progression from addiction to the next phase in his career.
 
-Upon 3rd listen, this album holds it's rank - Just an incredible amount of ideas and innovation, forseeing the next three decades of music.
+Upon 3rd listen, this album holds it's rank - Just an incredible amount of ideas and innovation, forseeing the next three decades of music. But on the 4th listen when all is said and done, it doesn't pull me back in for repeat listens.
 
 <i><a text-align="right" href="#">Go to top</a></i>
 
