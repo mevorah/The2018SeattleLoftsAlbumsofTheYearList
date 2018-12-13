@@ -1413,10 +1413,12 @@ Production has aged very well. Every song is a standout. Phenomenal arrangement,
 
 ## 1/4 Everything Falls Apart - Hüsker Du
 * 1st Listen: Not great
+* 2nd Listen: Ok
 
 ## 1/3 Good Bad Not Evil - The Black Lips
 * 1st Listen: Pretty good
 * 2nd Listen: Pretty good
+* 3rd Listen: Pretty good
 
 ## 1/1 Low - David Bowie
  * 1st Listen: Very good
