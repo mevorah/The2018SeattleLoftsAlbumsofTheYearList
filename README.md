@@ -277,7 +277,8 @@ Some great arrangements; entirely more barable than *Get Happy*.
 ## 9/19 White Blood Cells - White Stripes
 * Nth Listen: Very good/ incredible
 
-## 9/18
+## 9/18 Liquid Swords - GZA
+* 1st Listen:
 
 ## 9/17 Everybody Knows This Is Nowhere - Neil Young
 * 1st Listen: Ok
