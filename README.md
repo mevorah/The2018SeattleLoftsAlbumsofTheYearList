@@ -159,6 +159,7 @@ It's an album that has me coming back continously. A great running album, and as
 ## 10/26 No Age - Nouns
 * 1st Listen: Ok
 * 2nd Listen: Ok
+* 3rd Listen: Ok/ pretty good
 
 Intense and listenable. With that said, less than a few standouts. 
 
