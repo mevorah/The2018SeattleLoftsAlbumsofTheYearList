@@ -281,7 +281,7 @@ Some great arrangements; entirely more barable than *Get Happy*.
 * Nth Listen: Very good/ incredible
 
 ## 9/18 Liquid Swords - GZA
-* 1st Listen:
+* 1st Listen: Ok
 
 ## 9/17 Everybody Knows This Is Nowhere - Neil Young
 * 1st Listen: Ok
