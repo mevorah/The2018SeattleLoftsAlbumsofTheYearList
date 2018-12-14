@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 12/14 On Fire - Galaxie 500
-* 1st Listen:
+* 1st Listen: Ok/ pretty good
 
 ## 12/13 Guitar Romantic - The Exploding Hearts
 * 1st Listen: Pretty good
