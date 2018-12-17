@@ -13,7 +13,8 @@ There are certainly albums on this list that I've listened to countless (n) time
 ## 12/16 The Stooges - The Stooges
 * 1st Listen: Ok
 
-## 12/15
+## 12/15 Solid Gold - Gang Of Four
+* 1st Listen:
 
 ## 12/14 On Fire - Galaxie 500
 * 1st Listen: Ok/ pretty good
