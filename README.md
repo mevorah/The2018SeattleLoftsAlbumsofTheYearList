@@ -18,7 +18,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 * 1st Listen: Ok
 
 ## 12/15 Solid Gold - Gang Of Four
-* 1st Listen:
+* 1st Listen: Ok
 
 ## 12/14 On Fire - Galaxie 500
 * 1st Listen: Ok/ pretty good
