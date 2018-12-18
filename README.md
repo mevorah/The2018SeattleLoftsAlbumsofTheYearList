@@ -8,8 +8,11 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
-## 12/17 Y - The Pop Group
+## 12/18 Head Hunters - Herbie Hancock
 * 1st Listen:
+
+## 12/17 Y - The Pop Group
+* 1st Listen: Not great/ ok
 
 ## 12/16 The Stooges - The Stooges
 * 1st Listen: Ok
