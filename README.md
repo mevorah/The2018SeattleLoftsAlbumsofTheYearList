@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 12/18 Head Hunters - Herbie Hancock
-* 1st Listen:
+* 1st Listen: Pretty good
 
 ## 12/17 Y - The Pop Group
 * 1st Listen: Not great/ ok
