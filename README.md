@@ -281,7 +281,8 @@ Some great arrangements; entirely more barable than *Get Happy*.
 ## 9/24 Fear And Whiskey - The Mekons
 * 1st Listen: Ok/ pretty good
 
-## 9/23
+## 9/23 The Wall - Pink Floyd
+* 1st Listen:
 
 ## 9/22 Bon Iver - Bon Iver
 * Nth Listen: Pretty/ very good
