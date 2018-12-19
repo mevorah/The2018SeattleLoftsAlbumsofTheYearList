@@ -282,7 +282,9 @@ Some great arrangements; entirely more barable than *Get Happy*.
 * 1st Listen: Ok/ pretty good
 
 ## 9/23 The Wall - Pink Floyd
-* 1st Listen:
+* 1st Listen: Pretty/ very good
+
+Some incredible parts, but definitely a share of filler too.
 
 ## 9/22 Bon Iver - Bon Iver
 * Nth Listen: Pretty/ very good
