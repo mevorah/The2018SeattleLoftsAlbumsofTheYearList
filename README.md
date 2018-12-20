@@ -276,7 +276,8 @@ Some great arrangements; entirely more barable than *Get Happy*.
 * 2nd Listen: Ok/ pretty good
 * 3rd Listen: Ok/ pretty good
 
-## 9/25
+## 9/25 The Chronic - Dr. Dre
+* 1st Listen: Ok/ pretty good
 
 ## 9/24 Fear And Whiskey - The Mekons
 * 1st Listen: Ok/ pretty good
