@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 12/20 Let It Bleed - The Rolling Stones
-* 1st Listen:
+* 1st Listen: Pretty good
 
 ## 12/19 Funkadelic - Maggot Brain
 * 1st Listen: Ok
@@ -263,7 +263,8 @@ Some great arrangements; entirely more barable than *Get Happy*.
 
 ## 10/1 
 
-## 9/30
+## 9/30 The Kinks Are The Village Green Preservation Society - The Kinks
+* 1st Listen: Ok/ pretty good
 
 ## 9/29 Is This It - The Strokes
 * Nth Listen: Very good
