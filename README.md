@@ -189,7 +189,8 @@ Intense and listenable.
 
 ## 10/25
 
-## 10/24
+## 10/24 A Love Supreme - John Coltrane
+* 1st Listen:
 
 ## 10/23 Locust Abortion Technician - Butthole Surfers
 * 1st Listen: Not great/ ok
