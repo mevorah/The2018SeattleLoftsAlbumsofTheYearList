@@ -262,7 +262,7 @@ Tom Waits hasn't come around yet..
 Some great arrangements; entirely more barable than *Get Happy*.
 
 ## 10/1 White Light / White Heat - The Velvet Underground
-* 1st Listen:
+* 1st Listen: Pretty good
 
 ## 9/30 The Kinks Are The Village Green Preservation Society - The Kinks
 * 1st Listen: Ok/ pretty good
