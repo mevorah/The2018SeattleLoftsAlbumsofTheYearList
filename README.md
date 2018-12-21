@@ -187,7 +187,8 @@ It's an album that has me coming back continously. A great running album, and as
 
 Intense and listenable.
 
-## 10/25
+## 10/25 Bringing It All Back Home - Bob Dylan
+* 1st Listen:
 
 ## 10/24 A Love Supreme - John Coltrane
 * 1st Listen: Ok
