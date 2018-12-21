@@ -8,6 +8,9 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 12/21 It's Never Been Like That - Phoenix
+* 1st Listen:
+
 ## 12/20 Let It Bleed - The Rolling Stones
 * 1st Listen: Pretty good
 
