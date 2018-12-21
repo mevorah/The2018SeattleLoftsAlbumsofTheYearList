@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 12/21 It's Never Been Like That - Phoenix
-* 1st Listen:
+* 1st Listen: Ok
 
 ## 12/20 Let It Bleed - The Rolling Stones
 * 1st Listen: Pretty good
