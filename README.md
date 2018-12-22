@@ -150,7 +150,7 @@ There are some classics on this album.
 * 1st Listen: Ok/ pretty good
 
 ## 11/4 Rid Of Me - PJ Harvey
-* 1st Listen:
+* 1st Listen: Ok
 
 ## 11/3 Awake - Tycho
 * Nth Listen: Pretty good
