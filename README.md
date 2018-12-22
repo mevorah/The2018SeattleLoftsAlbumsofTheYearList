@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 12/22 Elephant - The White Stripes
-* 1st Listen:
+* 1st Listen: Pretty/ very good
 
 ## 12/21 It's Never Been Like That - Phoenix
 * 1st Listen: Ok
@@ -154,7 +154,8 @@ There are some classics on this album.
 ## 11/3 Awake - Tycho
 * Nth Listen: Pretty good
 
-## 11/2
+## 11/2 Everything All The Time - Band of Horses
+* 1st Listen: Ok/ pretty good
 
 ## 11/1 Tha Carter III - Lil Wayne
 * 1st Listen: Not great/ ok
