@@ -149,7 +149,8 @@ There are some classics on this album.
 ## 11/5 Synchronicity - The Police
 * 1st Listen: Ok/ pretty good
 
-## 11/4
+## 11/4 Rid Of Me - PJ Harvey
+* 1st Listen:
 
 ## 11/3 Awake - Tycho
 * Nth Listen: Pretty good
