@@ -153,12 +153,16 @@ There are some classics on this album.
 
 ## 11/2
 
-## 11/1
+## 11/1 Tha Carter III - Lil Wayne
+* 1st Listen: Not great/ ok
 
 ## 10/31 Miss E... So Addictive - Missy Elliot
 * 1st Listen: Ok
 
-## 10/30
+## 10/30 The Meadowlands - The Wrens
+* 1st Listen: Very good
+
+Highest debut rating of the year. It's amazing how long this album goes with doing everything right!
 
 ## 10/29 Suburban Light - The Clientele
 * 1st Listen: Ok/ pretty good
@@ -188,7 +192,7 @@ It's an album that has me coming back continously. A great running album, and as
 Intense and listenable.
 
 ## 10/25 Bringing It All Back Home - Bob Dylan
-* 1st Listen:
+* 1st Listen: Ok/ pretty good
 
 ## 10/24 A Love Supreme - John Coltrane
 * 1st Listen: Ok
