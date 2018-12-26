@@ -110,7 +110,7 @@ I hadn't heard a single song on this album.
 ## 11/20
 
 ## 11/19 Hot Buttered Soul - Isaac Hayes
-* 1st Listen:
+* 1st Listen: Ok/ pretty good
 
 ## 11/18 It Takes A Nation Of Millions To Hold Us Back - Public Enemy
 * 1st Listen: Ok/ pretty good
