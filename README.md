@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 12/26 Beggars Banquet - The Rolling Stones
-* 1st Listen:
+* 1st Listen: Ok
 
 ## 12/25
 
@@ -109,7 +109,8 @@ I hadn't heard a single song on this album.
 
 ## 11/20
 
-## 11/19
+## 11/19 Hot Buttered Soul - Isaac Hayes
+* 1st Listen:
 
 ## 11/18 It Takes A Nation Of Millions To Hold Us Back - Public Enemy
 * 1st Listen: Ok/ pretty good
