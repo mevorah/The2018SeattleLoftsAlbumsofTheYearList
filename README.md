@@ -108,7 +108,8 @@ I hadn't heard a single song on this album.
 
 ## 11/22
 
-## 11/21
+## 11/21 Out To Lunch - Eric Dolphy
+* 1st Listen: Ok
 
 ## 11/20 Veckatimest - Grizzly Bear
 * 1st Listen: Pretty/ very good
