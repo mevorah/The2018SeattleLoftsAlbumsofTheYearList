@@ -107,7 +107,8 @@ I hadn't heard a single song on this album.
 
 ## 11/21
 
-## 11/20
+## 11/20 Veckatimest - Grizzly Bear
+* 1st Listen:
 
 ## 11/19 Hot Buttered Soul - Isaac Hayes
 * 1st Listen: Ok/ pretty good
