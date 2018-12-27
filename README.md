@@ -141,7 +141,7 @@ The rest more than makes up for the two lesser tracks.
 * 1st Listen: Ok
 
 ## 11/10 Modern Sounds In Country And Western Music, Vols. 1&2 - Ray Charles
-* 1st Listen:
+* 1st Listen: Ok/ pretty good
 
 ## 11/9 Here's Little Richard - Little Richard
 * 1st Listen: Ok
