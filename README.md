@@ -103,10 +103,11 @@ I hadn't heard a single song on this album.
 
 ## 11/26 
 
-## 11/25
+## 11/25 Let It Be - The Beatles
+* 1st Listen:
 
 ## 11/24 Where Did Our Love Go - The Supremes
-* 1st Listen:
+* 1st Listen: Pretty good
 
 ## 11/23 F# A# Infinity - Godspeed You! Black Emperor
 * 1st Listen:
