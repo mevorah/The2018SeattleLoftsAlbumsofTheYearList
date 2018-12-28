@@ -107,7 +107,7 @@ I hadn't heard a single song on this album.
 
 ## 11/24
 
-## 11/23
+## 11/23 F# A# Infinity - Godspeed You! Black Emperor
 
 ## 11/22 Buzz Or Howl Under The Influence Of Heat - Minutemen
 * 1st Listen: Pretty good
