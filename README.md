@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 12/28 Meat Puppets II - Meat Puppets
-* 1st Listen:
+* 1st Listen: Pretty good
 
 ## 12/27 Mirrored - Battles
 * 1st Listen: Ok
@@ -109,7 +109,8 @@ I hadn't heard a single song on this album.
 
 ## 11/23
 
-## 11/22
+## 11/22 Buzz Or Howl Under The Influence Of Heat - Minutemen
+* 1st Listen:
 
 ## 11/21 Out To Lunch - Eric Dolphy
 * 1st Listen: Ok
