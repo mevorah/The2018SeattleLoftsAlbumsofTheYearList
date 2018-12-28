@@ -110,7 +110,7 @@ I hadn't heard a single song on this album.
 ## 11/23
 
 ## 11/22 Buzz Or Howl Under The Influence Of Heat - Minutemen
-* 1st Listen:
+* 1st Listen: Pretty good
 
 ## 11/21 Out To Lunch - Eric Dolphy
 * 1st Listen: Ok
