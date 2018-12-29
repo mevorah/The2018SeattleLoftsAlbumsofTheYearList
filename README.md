@@ -100,8 +100,6 @@ There are certainly albums on this list that I've listened to countless (n) time
 ## 11/28 The Piper At The Gates Of Dawn - Pink Floyd
 * 1st Listen: Ok
 
-I hadn't heard a single song on this album.
-
 ## 11/27 Fear Of A Black Planet - Public Enemy
 * 1st Listen: Ok/ pretty good
 
