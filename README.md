@@ -86,7 +86,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 * 1st Listen: Ok
 
 ## 12/2 Pinkerton - Weezer
-* 1st Listen:
+* 1st Listen: Pretty/ very good
 
 ## 12/1 The Argument - Fugazi
 * 1st Listen: Not great/ Ok
