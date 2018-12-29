@@ -105,7 +105,7 @@ I hadn't heard a single song on this album.
 * 1st Listen: Ok/ pretty good
 
 ## 11/26 Monster Movie - Can
-* 1st Listen:
+* 1st Listen: Ok/ pretty good
 
 ## 11/25 Total Life Forever - Foals
 * Nth Listen: Very good
