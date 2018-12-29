@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 12/29 Bitte Orca - Dirty Projectors
-* 1st Listen: 
+* 1st Listen: Ok
 
 ## 12/28 Meat Puppets II - Meat Puppets
 * 1st Listen: Pretty good
