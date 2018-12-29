@@ -85,7 +85,8 @@ There are certainly albums on this list that I've listened to countless (n) time
 ## 12/3 One Beat - Sleater-Kinney
 * 1st Listen: Ok
 
-## 12/2
+## 12/2 Pinkerton - Wilco
+* 1st Listen:
 
 ## 12/1 The Argument - Fugazi
 * 1st Listen: Not great/ Ok
