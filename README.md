@@ -103,8 +103,8 @@ I hadn't heard a single song on this album.
 
 ## 11/26 
 
-## 11/25 
-* 1st Listen:
+## 11/25 Kill The Moonlight - Spoon
+* Nth Listen: Very good
 
 ## 11/24 Where Did Our Love Go - The Supremes
 * 1st Listen: Pretty good
