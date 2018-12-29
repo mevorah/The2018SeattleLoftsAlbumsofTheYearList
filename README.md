@@ -8,6 +8,9 @@ There are certainly albums on this list that I've listened to countless (n) time
 5. ***Not Great*** - Some songs are listenable, but overall just a chore to listen to
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
+## 12/29 Bitte Orca - Dirty Projectors
+* 1st Listen: 
+
 ## 12/28 Meat Puppets II - Meat Puppets
 * 1st Listen: Pretty good
 
@@ -103,8 +106,8 @@ I hadn't heard a single song on this album.
 
 ## 11/26 
 
-## 11/25
-
+## 11/25 Total Life Forever - Foals
+* Nth Listen: Very good
 
 ## 11/24 Where Did Our Love Go - The Supremes
 * 1st Listen: Pretty good
