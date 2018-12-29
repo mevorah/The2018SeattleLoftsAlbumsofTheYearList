@@ -104,7 +104,7 @@ I hadn't heard a single song on this album.
 ## 11/27 Fear Of A Black Planet - Public Enemy
 * 1st Listen: Ok/ pretty good
 
-## 11/26 And Then Nothing Turned Itself Inside-Out - Yo La Tengo
+## 11/26 Monster Movie - Can
 * 1st Listen:
 
 ## 11/25 Total Life Forever - Foals
