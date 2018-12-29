@@ -103,8 +103,8 @@ I hadn't heard a single song on this album.
 
 ## 11/26 
 
-## 11/25 Kill The Moonlight - Spoon
-* Nth Listen: Very good
+## 11/25
+
 
 ## 11/24 Where Did Our Love Go - The Supremes
 * 1st Listen: Pretty good
@@ -351,6 +351,7 @@ Highlights: *Everybody Knows This Is Nowhere*, *Cowgirl In The Sand*
 
 ## 9/16 Kill The Moonlight - Spoon
 * 1st Listen: Pretty/ very good
+* 2nd Listen: Very good
 
 ## 9/15 Forever Changes - Love
 * 1st Listen: Ok/ pretty good
