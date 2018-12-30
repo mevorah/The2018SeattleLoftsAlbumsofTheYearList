@@ -83,7 +83,8 @@ There are certainly albums on this list that I've listened to countless (n) time
 ## 12/5 Tapestry - Carole King
 * 1st Listen: Pretty/ very good
 
-## 12/4
+## 12/4 Pleased To Meet Me - The Replacements
+* 1st Listen: Ok/ pretty good
 
 ## 12/3 One Beat - Sleater-Kinney
 * 1st Listen: Ok
