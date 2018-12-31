@@ -1197,6 +1197,9 @@ More tolerable than free form jazz - Mingus actually has a composition he's work
 * 2nd Listen: Pretty good (maybe very good)
 * 3rd Listen: Pretty/ very good
 
+## 3/4 Purple - Stone Temple Pilots
+* 1st Listen:
+
 ## 3/3 Smiley Smile - Beach Boys
 * 1st Listen: Ok/ pretty good
 * 2nd Listen: Ok/ pretty good
