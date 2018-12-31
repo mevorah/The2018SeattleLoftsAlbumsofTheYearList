@@ -621,7 +621,7 @@ You could hear him in Cake - that deadpan country.
 * 2nd Listen: Ok/ pretty good
 * 3rd Listen: Pretty good
 * 4th Listen: Pretty/ very good
-* 5th Listen (7-27): Very good
+* 5th Listen: Very good
 
 ## 7/8 The Glow, Pt. 2 - The Microphones
 * 1st Listen: Pretty good
@@ -889,6 +889,7 @@ With the over saturation of the beach summer music, Double Nickels On The Dime c
 
 ## 5/4 Saturday Night Fever - Various
 * 1st Listen: Ok
+
 The first handful of songs are incredible. Unfortunately, the rest feels like movie filler. A fairly imbalanced album.
 
 ## 5/3 Screamadelica - Primal Scream
@@ -1197,7 +1198,8 @@ More tolerable than free form jazz - Mingus actually has a composition he's work
 * 3rd Listen: Pretty/ very good
 
 ## 3/3 Smiley Smile - Beach Boys
-* 1st/ 2nd Listen: Ok/ pretty good
+* 1st Listen: Ok/ pretty good
+* 2nd Listen: Ok/ pretty good
 
 *Good Vibrations* is amazing, but the rest of the album leaves a lot to be desired after Pet Sounds. Some tracks are needlessly obscure (She's Goin Bald), others range between ok and pretty good. *Ok/ pretty good*.
 
@@ -1334,7 +1336,7 @@ Fantastic songs, Paul Simon's voice is incredible - surely an influence on Ellio
 So many influences and deadpan lyrics, and so much musical variety - this album may have it all. Phenomenal.
 
 ## 2/4 High Violet - The National
-* **Nth Listen: Very good**
+* Nth Listen: Very good
 
 ## 2/3 Post - Bjork
 * 1st Listen: Ok/ Pretty good
@@ -1481,11 +1483,6 @@ Production has aged very well. Every song is a standout. Phenomenal arrangement,
 ## 1/6 New Day Rising - Hüsker Du
 * 1st Listen: Ok
 
-## 1/6 13 Songs - Fugazi
-* 1st Listen: Ok
-* 2nd Listen: Unknown
-* 3rd Listen: Pretty good
-
 ## 1/5 Zen Arcade - Hüsker Du
 * 1st Listen: Ok
 
@@ -1496,6 +1493,11 @@ Production has aged very well. Every song is a standout. Phenomenal arrangement,
 ## 1/3 Good Bad Not Evil - The Black Lips
 * 1st Listen: Pretty good
 * 2nd Listen: Pretty good
+* 3rd Listen: Pretty good
+
+## 1/2 13 Songs - Fugazi
+* 1st Listen: Ok
+* 2nd Listen: Unknown
 * 3rd Listen: Pretty good
 
 ## 1/1 Low - David Bowie
