@@ -72,7 +72,8 @@ There are certainly albums on this list that I've listened to countless (n) time
 ## 12/9 This Year's Model - Elvis Costello & The Attractions
 * 1st Listen: Ok
 
-## 12/8
+## 12/8 The Blueprint - Jay Z
+* 1st Listen: Ok
 
 ## 12/7 20 Golden Greats: Buddy Holly Lives - Buddy Holly, The Crickets
 * 1st Listen: Ok
