@@ -28,7 +28,8 @@ There are certainly albums on this list that I've listened to countless (n) time
 ## 12/24 Sister - Sonic Youth
 * 1st Listen: Ok
 
-## 12/23
+## 12/23 Ziggy Stardust And The Spiders From Mars - DaviD Bowie
+* Nth Listen: Very good/ incredible
 
 ## 12/22 Elephant - The White Stripes
 * 1st Listen: Pretty/ very good
