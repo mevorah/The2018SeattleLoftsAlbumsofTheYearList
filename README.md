@@ -9,7 +9,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 6. ***Awful / The Worst*** - Little is redeeming, a pretty rough listening experience
 
 ## 12/31 YS - Joanna Newsom
-* 1st Listen: 
+* 1st Listen: Ok
 
 ## 12/30 In The Court Of The Crimson King - King Crimson
 * 1st Listen: Pretty/ very good
