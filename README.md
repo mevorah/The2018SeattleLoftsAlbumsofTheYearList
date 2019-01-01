@@ -27,7 +27,7 @@ There are certainly albums on this list that I've listened to countless (n) time
 * 1st Listen: Ok
 
 ## 12/25 Naked - Talking Heads
-* 1st Listen:
+* 1st Listen: Ok
 
 ## 12/24 Sister - Sonic Youth
 * 1st Listen: Ok
