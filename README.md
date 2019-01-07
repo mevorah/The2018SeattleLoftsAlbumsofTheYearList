@@ -398,6 +398,7 @@ Quantity, quality, and variety. What a treat!
 
 ## 9/6 Singles Going Steady - Buzzcocks
 * 1st Listen: Ok
+* 2nd Listen: Ok/ pretty good
 
 When the singles hit, they hit hard. With that said there is no doubt that this album has its share of filler.
 
