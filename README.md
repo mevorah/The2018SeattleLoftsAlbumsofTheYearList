@@ -381,11 +381,14 @@ Highlights: *Everybody Knows This Is Nowhere*, *Cowgirl In The Sand*
 ## 9/11 Surf's Up - Beach Boys
 * 1st Listen: Ok
 * 2nd Listen: Ok/ pretty good
+* 3rd Listen: Pretty/ very good
+
+Take each song individually and the album is pretty good. But take it as a band grappling with a changing lineup and a changing world, and the album as a whole turns into something more. With members of the band stepping up in their writing and Brian Wilson being pushed away you get a mix of some of the most disenguine (Student Demonstration Time) and painfully genuine (the final tree-song suite) tracks on an album. And what fills in between are fantastic melodies - Don't Go Near The Water, Disney Girls.
 
 ## 9/10 London Calling - The Clash
 * 1st Listen: Pretty good
 
-Quantity, quality, and variety. What a treat!
+Quantity, quality, and variety. What a treat
 
 ## 9/9 Ga Ga Ga - Spoon
 * Nth Listen: Very good
