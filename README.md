@@ -559,6 +559,7 @@ I want to love them - but how one dimensional!
 
 ## 7/25 Being There - Wilco
 * 1st Listen: Ok/ pretty good
+* 2nd Listen: Pretty/ very good
 
 ## 7/24 Marquee Moon - Television
 * 1st Listen: Pretty/ very good
@@ -613,6 +614,7 @@ You could hear him in Cake - that deadpan country.
 
 ## 7/12 Black Foliage: Animation Music - The Olivia Tremor Control
 * 1st Listen: Pretty good
+* 2nd Listen: Pretty/ very good
 
 ## 7/11 Back In Black - ACDC
 * 1st Listen: Ok
