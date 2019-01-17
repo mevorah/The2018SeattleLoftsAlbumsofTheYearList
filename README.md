@@ -1137,8 +1137,9 @@ This album is the concentrate of Modest Mouse.
 Definitively, very good. Pop that doesn't emulate, but builds on those that came before. It feels as though The Beatles' experimentation had been boiled down into ideas that worked and those that didn't - the ideas that worked soley realized through this album. Everything from *Jumping Fences* to the 10x *Green Typewriters* - "How much longer.. can I wait?", in 1996 we had  arrived.
 
 ## 3/16 Richard D. James Album - Aphex Twin
-* 4th or 5th Listen: Pretty good
-* 6th Listen: Pretty good
+* 1st Listen: Pretty good
+* 2nd Listen: Pretty good
+* 3rd Listen: Pretty/ very good
 
 I can't help but think that I found this album pretty inacessible on the first listen. After three or four more over the course of the last few years, I think I'm sold. *4* opens the album and goddamn what an opener - the drum machine, the melody that feels like an electric eel working its way through a computer. The sounds and textures feel tangible. The emotion that is wrung out the circuits that made this album (especially on *Girl/Boy*) - palpable. Strangely, with the highlights so bright, there is a sense of filler. That is, filler that will almost certainly win me over in the years to come. Bravo Richard D. James, bravo.
 
