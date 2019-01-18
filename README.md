@@ -1210,6 +1210,7 @@ More tolerable than free form jazz - Mingus actually has a composition he's work
 * 1st Listen: Ok/ pretty good
 * 2nd Listen: Pretty good (maybe very good)
 * 3rd Listen: Pretty/ very good
+* 4th Listen: Pretty/ very good
 
 ## 3/4 Discovery - Daft Punk
 * 1st Listen: Very good
