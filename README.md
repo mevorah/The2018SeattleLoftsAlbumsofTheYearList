@@ -1044,6 +1044,7 @@ This album is quantity and quality. When I thought I had rediscovered all of tho
 * 4th Listen: Very good
 * 5th Listen: Very good
 * 6th Listen: Very good
+* 7th Listen: Very good/ incredible
 
 This album is thoroughly enjoyable all the way through. It's clear to see Kim Deal's influence on the Pixes.
 
