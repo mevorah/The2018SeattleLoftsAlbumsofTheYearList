@@ -551,6 +551,7 @@ When I listened to Husker Du and Black Flag this year, In both cases I was left 
 ## 7/27 Fun Trick Noisemaker - The Apples In Stereo
 * 1st Listen (7-27): Pretty good
 * 2nd Listen: Pretty good
+* 3rd Listen: Very good
 
 ## 7/26 Mars Audiac Quintet - Stereolab
 * 1st Listen: Ok
@@ -842,6 +843,7 @@ A couple of solid songs with interesting ambient works in between!
 
 ## 5/14 Check Your Head - Beastie Boys
 * 1st Listen: Not great/ ok
+* 2nd Listen: Pretty good
 
 ## 5/13 Damaged - Blackflag
 * 1st Listen: Not great/ ok
@@ -855,6 +857,9 @@ You can feel the energy.. even when standing at your desk. I think that's the po
 
 ## 5/11 Emperor Tomato Ketchup - Stereolab
 * 1st Listen: Not great/ ok
+* 3rd Listen: Pretty/ very good
+
+On subsequent listens, this album is catchy!
 
 ## 5/10 This Nation's Saving Grace - The Fall
 * 1st Listen: Ok
