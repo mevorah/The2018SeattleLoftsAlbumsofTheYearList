@@ -813,6 +813,7 @@ Every great reggae song has been put on this album. What a tour de force of... r
 
 ## 5/22 Brighten The Corners - Pavement
 * 1st Listen: Pretty good
+* 2nd Listen: Pretty/ very good
 
 ## 5/21 XO - Elliot Smith
 * 1st Listen: Pretty good
@@ -830,6 +831,7 @@ Every great reggae song has been put on this album. What a tour de force of... r
 
 ## 5/17 Nowhere - Ride
 * 1st Listen: Ok
+* 2nd Listen: Pretty good
 
 ## 5/16 Dummy - Portishead
 * 1st Listen: Ok
