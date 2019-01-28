@@ -1125,6 +1125,7 @@ The commonalities between this and the Gorillaz is unmistakable. Com'on Damon!
 * 1st Listen: Pretty/ very good
 * 2nd Listen: Very good
 * 3rd Listen: Very good/ incredible
+* 4th Listen: Very good/ incredible
 
 Indulgent. Emotional. Incredible. 
 
@@ -1132,6 +1133,7 @@ Indulgent. Emotional. Incredible.
 * 1st Listen: Pretty/ very good
 * 2nd Listen: Very good
 * 3rd Listen: Very good
+* 4th Listen: Very good/ incredible
 
 This album is the concentrate of Modest Mouse.
 
