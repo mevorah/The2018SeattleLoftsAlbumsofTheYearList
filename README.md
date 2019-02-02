@@ -552,6 +552,7 @@ When I listened to Husker Du and Black Flag this year, In both cases I was left 
 * 1st Listen (7-27): Pretty good
 * 2nd Listen: Pretty good
 * 3rd Listen: Very good
+* 4th Listen: Very good
 
 ## 7/26 Mars Audiac Quintet - Stereolab
 * 1st Listen: Ok
