@@ -202,6 +202,7 @@ There are some classics on this album.
 
 ## 10/30 The Meadowlands - The Wrens
 * 1st Listen: Very good
+* 2nd Listen: Very good/ incredible
 
 Highest debut rating of the year. It's amazing how long this album goes with doing everything right!
 
@@ -220,6 +221,7 @@ Cathartic electronic music, yes please. Spotty at times.
 * 2nd Listen: Pretty/ very good
 * 3rd Listen: Pretty/ very good
 * 4th Listen: Very good
+* 5th Listen: Very good
 
 The album is really good - JT packs a ton of solid songs as highlights. But the rest is by no means filler - there are funky breakdowns, melodies, and great musicianship. It’s a pop album that has depth derived from the marriage of music and lyrics.
 
