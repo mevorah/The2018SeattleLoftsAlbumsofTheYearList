@@ -203,6 +203,7 @@ There are some classics on this album.
 ## 10/30 The Meadowlands - The Wrens
 * 1st Listen: Very good
 * 2nd Listen: Very good/ incredible
+* 3rd Listen: Very good/ incredible
 
 Highest debut rating of the year. It's amazing how long this album goes with doing everything right!
 
@@ -1137,6 +1138,7 @@ Indulgent. Emotional. Incredible.
 * 2nd Listen: Very good
 * 3rd Listen: Very good
 * 4th Listen: Very good/ incredible
+* 5th Listen: Very good
 
 This album is the concentrate of Modest Mouse.
 
