@@ -1359,7 +1359,7 @@ Fantastic songs, Paul Simon's voice is incredible - surely an influence on Ellio
 
 ## 2/5 Crooked Rain, Crooked Rain - Pavement
 * 1st Listen: Pretty good
-* 2nd Listen: Very good/ (may be incredible)
+* 2nd Listen: Very good
 * 3rd Listen: Very good
 
 So many influences and deadpan lyrics, and so much musical variety - this album may have it all. Phenomenal.
