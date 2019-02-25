@@ -1130,6 +1130,7 @@ The commonalities between this and the Gorillaz is unmistakable. Com'on Damon!
 * 2nd Listen: Very good
 * 3rd Listen: Very good/ incredible
 * 4th Listen: Very good/ incredible
+* 5th Listen: Very good/ incredible
 
 Indulgent. Emotional. Incredible. 
 
